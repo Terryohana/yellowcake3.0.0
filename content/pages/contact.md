@@ -4,7 +4,7 @@ slug: contact
 title: Contact Page
 featuredImage: https://ucarecdn.com/e22a858a-b420-47af-99f6-ed54b6860333/
 subtitle: YOu can reach us here ...
-address: 404 James St, Burleigh Heads QLD 4220
+address: Everywhere in the USA
 phone: +254-772-070-038
 email: info@beautifulafricanart.com
 locations:
