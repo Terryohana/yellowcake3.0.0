@@ -1,6 +1,6 @@
 ---
       template: SinglePost
-      title: -- Nokia 1208 Black (Vodafone) -- LG Model no: VX8550LK (VERIZON) READ DESCRIPTION 
+      title: -- Nokia 1208 Black (Vodafone) -- LG Model no VX8550LK (VERIZON) READ DESCRIPTION 
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/ts0AAOSwA5FivzTG/s-l225.jpg'
