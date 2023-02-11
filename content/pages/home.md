@@ -1,30 +1,24 @@
 ---
 template: HomePage
-slug: ''
-title: Yellowcake
-featuredImage: 'https://ucarecdn.com/159203d3-881d-4218-baa1-ca4427b48d0d/'
-subtitle: ' Welcome to the ultimate Gatsby and Netlify starter project.'
+slug: ""
+title: Ebay Cheap Phones
+featuredImage: https://ucarecdn.com/159203d3-881d-4218-baa1-ca4427b48d0d/
+subtitle: Welcome to the best Place to find cheap phoes on ebay
 meta:
-  description: This is a meta description.
-  title: The Ultimate Gatsby Starter
+  description: Welcome to the best Place to find cheap phones on ebay
+  title: Ebay Cheap Phones
+  canonicalLink: https://www.ebay.com/
 ---
-
-Yellowcake is an opinionated starter project created by [Thrive Digital](https://thriveweb.com.au/) a [Gold Coast Web Design](https://thriveweb.com.au/) studio. to help you create lightning fast websites with [Gatsby](https://gatsbyjs.org) and [Netlify CMS](https://netlifycms.org).
-
-View the [project overview](https://thriveweb.com.au/the-lab/yellowcake-gatsby-react-js-starter-project/) and the [docs](https://github.com/thriveweb/yellowcake/blob/master/README.md).
+Ebay-Cheap-Phones" is the ultimate destination for anyone looking to buy a high-quality and affordable phone. As the name suggests, the website specializes in selling a wide range of phones at unbeatable prices, making it an ideal choice for budget-conscious shoppers. All the phones available on the site are sourced directly from trusted sellers on eBay, ensuring that the products are of the highest quality and authenticity.
 
 # Features
 
-- **[Gatsby](https://gatsbyjs.org)** static site generator
-- **[Netlify CMS](https://github.com/netlify/netlify-cms)** for content management
-- Dynamic menus and forms
-- **[Mailchimp](http://mailchimp.com)** and **[Uploadcare](https://uploadcare.com)** integrations
-- Fully responsive layout for mobile and widescreen browsing
-- Blog searching and paging functionality
-- Seamless image and content sliders
+The website has an intuitive and user-friendly interface, making it easy for shoppers to find their desired phone with just a few clicks. The products are categorically arranged based on the brand, model, and price, allowing customers to easily compare and choose the phone that best suits their needs and budget.
 
 ## Get started
 
-View the [Netlify CMS Docs](https://www.netlifycms.org/docs/) and the [Netlify CMS Repo](https://github.com/netlify/netlify-cms).
+What sets Ebay-Cheap-Phones apart is the attention to detail given to every product listing. Each phone is accompanied by high-quality images and detailed specifications, making it easy for shoppers to make informed decisions. The website also provides an accurate and up-to-date pricing information, ensuring that customers are getting the best deal possible.
 
-[![Deploy to Netlify](https://www.netlify.com/img/deploy/button.svg)](https://app.netlify.com/start/deploy?repository=https://github.com/thriveweb/yellowcake&stack=cms)
+In addition to offering great prices, Ebay-Cheap-Phones also provides a safe and secure shopping experience. The website uses advanced security protocols to protect customers' personal and financial information. All transactions are processed through trusted and reliable payment gateways, ensuring that customers' funds are protected at all times.
+
+Whether you're looking to buy a brand new phone or a refurbished model, Ebay-Cheap-Phones is the perfect destination for you. With its unbeatable prices, extensive product range, and commitment to customer satisfaction, this website is sure to exceed your expectations.
