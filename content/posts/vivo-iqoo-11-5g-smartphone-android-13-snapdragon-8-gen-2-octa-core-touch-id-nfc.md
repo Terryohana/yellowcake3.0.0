@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/oQEAAOSw8Ohjkq6H/s-l225.jpg'
-      categories: News
+      categories: 
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
         
 ---
 $
-    Endorsed by experts, this Cell Phones & Smartphones device is available at a discounted price of 792.891 after a 10% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/175525493592?hash=item28de227b58%3Ag%3AoQEAAOSw8Ohjkq6H&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo iQOO 11 5G Smartphone Android 13 Snapdragon 8 Gen 2 Octa Core Touch ID NFC. The shipping cost is undefined.Product ImageVivo iQOO 11 5G Smartphone Android 13 Snapdragon 8 Gen 2 Octa Core Touch ID NFCAdditional ImagesVivo iQOO 11 5G Smartphone Android 13 Snapdragon 8 Gen 2 Octa Core Touch ID NFC, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175525493592_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525493592_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525493592_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525493592_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525493592_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525493592_7_0_1/225x225.jpg)
+    Acclaimed by critics, this Cell Phones & Smartphones device is available at a discounted price of 757.6514 after a 14% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/175525493592?hash=item28de227b58%3Ag%3AoQEAAOSw8Ohjkq6H&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo iQOO 11 5G Smartphone Android 13 Snapdragon 8 Gen 2 Octa Core Touch ID NFC. The shipping cost is undefined.Product ImageVivo iQOO 11 5G Smartphone Android 13 Snapdragon 8 Gen 2 Octa Core Touch ID NFCAdditional ImagesVivo iQOO 11 5G Smartphone Android 13 Snapdragon 8 Gen 2 Octa Core Touch ID NFC, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175525493592_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525493592_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525493592_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525493592_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525493592_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525493592_7_0_1/225x225.jpg)
     
     
 

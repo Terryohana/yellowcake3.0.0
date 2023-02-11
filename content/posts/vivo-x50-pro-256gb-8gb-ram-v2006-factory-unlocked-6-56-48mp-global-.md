@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/HiYAAOSwUS1jUbzX/s-l225.jpg'
-      categories: News
+      categories: 
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
         
 ---
 $
-    Outstanding performance, this Cell Phones & Smartphones device is available at a discounted price of 364.8911 after a 11% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/195425193183?hash=item2d803fccdf%3Ag%3AHiYAAOSwUS1jUbzX&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global). The shipping cost is undefined.Product ImageVivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global)Additional ImagesVivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global), check vendor page, ![check vendor page]()
+    Endorsed by experts, this Cell Phones & Smartphones device is available at a discounted price of 364.8911 after a 11% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/195425193183?hash=item2d803fccdf%3Ag%3AHiYAAOSwUS1jUbzX&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global). The shipping cost is undefined.Product ImageVivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global)Additional ImagesVivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global), check vendor page, ![check vendor page]()
     
     
 

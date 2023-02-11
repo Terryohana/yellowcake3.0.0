@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/~sMAAOSwBpNhzo8J/s-l225.jpg'
-      categories: News
+      categories: 
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th VIVO S12 Pro 5G Smartphone Android 11 Dimensity 1200 Octa Core GPS Touch ID NFC from a well-known brand.This Man-portable device  is sure to be a Decorative-showcase. in your home. [Click Here](https://www.ebay.com/itm/185237509662?hash=item2b2104161e%3Ag%3A%7EsMAAOSwBpNhzo8J&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the VIVO S12 Pro 5G Smartphone Android 11 Dimensity 1200 Octa Core GPS Touch ID NFC. Shipping cost is undefined.Here is the posting visibly ![VIVO S12 Pro 5G Smartphone Android 11 Dimensity 1200 Octa Core GPS Touch ID NFC](https://i.ebayimg.com/thumbs/images/g/~sMAAOSwBpNhzo8J/s-l225.jpg) to check out more postings here... ![VIVO S12 Pro 5G Smartphone Android 11 Dimensity 1200 Octa Core GPS Touch ID NFC](https://i.ebayimg.com/images/g/~sMAAOSwBpNhzo8J/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185237509662_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185237509662_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185237509662_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185237509662_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185237509662_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185237509662_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185237509662_8_0_1/225x225.jpg)'
+      Introducing th VIVO S12 Pro 5G Smartphone Android 11 Dimensity 1200 Octa Core GPS Touch ID NFC from a well-known brand.This Lightweight smartphone is sure to be a Subject-of-interest in your home. [Click Here](https://www.ebay.com/itm/185237509662?hash=item2b2104161e%3Ag%3A%7EsMAAOSwBpNhzo8J&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the VIVO S12 Pro 5G Smartphone Android 11 Dimensity 1200 Octa Core GPS Touch ID NFC. Shipping cost is undefined.Here is the posting visibly ![VIVO S12 Pro 5G Smartphone Android 11 Dimensity 1200 Octa Core GPS Touch ID NFC](https://i.ebayimg.com/thumbs/images/g/~sMAAOSwBpNhzo8J/s-l225.jpg) to check out more postings here... ![VIVO S12 Pro 5G Smartphone Android 11 Dimensity 1200 Octa Core GPS Touch ID NFC](https://i.ebayimg.com/images/g/~sMAAOSwBpNhzo8J/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185237509662_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185237509662_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185237509662_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185237509662_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185237509662_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185237509662_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185237509662_8_0_1/225x225.jpg)'
 
       
 

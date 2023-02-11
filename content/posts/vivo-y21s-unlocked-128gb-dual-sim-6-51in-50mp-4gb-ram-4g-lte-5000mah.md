@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/2vcAAOSwBnpikSzX/s-l225.jpg'
-      categories: News
+      categories: 
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Vivo Y21s (Unlocked) 128GB DUAL SIM 6.51in 50MP 4GB RAM 4G LTE 5000mAh from a well-known brand.This Man-portable smartphone is sure to be a Design-piece in your home. [Click Here](https://www.ebay.com/itm/195094479815?hash=item2d6c8983c7%3Ag%3A2vcAAOSwBnpikSzX&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo Y21s (Unlocked) 128GB DUAL SIM 6.51in 50MP 4GB RAM 4G LTE 5000mAh. Shipping cost is undefined.Here is the posting visibly ![Vivo Y21s (Unlocked) 128GB DUAL SIM 6.51in 50MP 4GB RAM 4G LTE 5000mAh](https://i.ebayimg.com/thumbs/images/g/2vcAAOSwBnpikSzX/s-l225.jpg) to check out more postings here... ![Vivo Y21s (Unlocked) 128GB DUAL SIM 6.51in 50MP 4GB RAM 4G LTE 5000mAh](https://i.ebayimg.com/images/g/2vcAAOSwBnpikSzX/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195094479815_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_9_0_1/225x225.jpg)'
+      Introducing th Vivo Y21s (Unlocked) 128GB DUAL SIM 6.51in 50MP 4GB RAM 4G LTE 5000mAh from a well-known brand.This well crafted hand held device is sure to be a Room-accent in your home. [Click Here](https://www.ebay.com/itm/195094479815?hash=item2d6c8983c7%3Ag%3A2vcAAOSwBnpikSzX&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo Y21s (Unlocked) 128GB DUAL SIM 6.51in 50MP 4GB RAM 4G LTE 5000mAh. Shipping cost is undefined.Here is the posting visibly ![Vivo Y21s (Unlocked) 128GB DUAL SIM 6.51in 50MP 4GB RAM 4G LTE 5000mAh](https://i.ebayimg.com/thumbs/images/g/2vcAAOSwBnpikSzX/s-l225.jpg) to check out more postings here... ![Vivo Y21s (Unlocked) 128GB DUAL SIM 6.51in 50MP 4GB RAM 4G LTE 5000mAh](https://i.ebayimg.com/images/g/2vcAAOSwBnpikSzX/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195094479815_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094479815_9_0_1/225x225.jpg)'
 
       
 

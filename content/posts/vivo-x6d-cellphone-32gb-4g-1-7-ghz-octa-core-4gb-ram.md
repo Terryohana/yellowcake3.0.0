@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/f8wAAOSw1bBjyDBB/s-l225.jpg'
-      categories: News
+      categories: 
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
         
 ---
 $
-    User-endorsed, this Cell Phones & Smartphones device is available at a discounted price of 56.57520000000001 after a 12% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/195562936935?hash=item2d88759a67%3Ag%3Af8wAAOSw1bBjyDBB&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo X6D Cellphone 32GB 4G 1.7 GHz Octa-core 4GB Ram. The shipping cost is undefined.Product ImageVivo X6D Cellphone 32GB 4G 1.7 GHz Octa-core 4GB RamAdditional ImagesVivo X6D Cellphone 32GB 4G 1.7 GHz Octa-core 4GB Ram, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195562936935_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195562936935_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195562936935_4_0_1/225x225.jpg)
+    Best value, this Cell Phones & Smartphones device is available at a discounted price of 57.861000000000004 after a 10% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/195562936935?hash=item2d88759a67%3Ag%3Af8wAAOSw1bBjyDBB&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo X6D Cellphone 32GB 4G 1.7 GHz Octa-core 4GB Ram. The shipping cost is undefined.Product ImageVivo X6D Cellphone 32GB 4G 1.7 GHz Octa-core 4GB RamAdditional ImagesVivo X6D Cellphone 32GB 4G 1.7 GHz Octa-core 4GB Ram, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195562936935_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195562936935_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195562936935_4_0_1/225x225.jpg)
     
     
 

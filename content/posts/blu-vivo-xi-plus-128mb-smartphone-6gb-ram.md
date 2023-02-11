@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/71YAAOSw7R1j1BIS/s-l225.jpg'
-      categories: News
+      categories: 
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
         
 ---
 $
-    Innovative design, this Cell Phones & Smartphones device is available at a discounted price of 102.34 after a 14% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/275649535061?hash=item402dfe1c55%3Ag%3A71YAAOSw7R1j1BIS&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the BLU VIVO XI Plus 128mb smartphone 6gb RAM. The shipping cost is undefined.Product ImageBLU VIVO XI Plus 128mb smartphone 6gb RAMAdditional ImagesBLU VIVO XI Plus 128mb smartphone 6gb RAM, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275649535061_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275649535061_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275649535061_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275649535061_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275649535061_6_0_1/225x225.jpg)
+    Highly valued, this Cell Phones & Smartphones device is available at a discounted price of 107.1 after a 10% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/275649535061?hash=item402dfe1c55%3Ag%3A71YAAOSw7R1j1BIS&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the BLU VIVO XI Plus 128mb smartphone 6gb RAM. The shipping cost is undefined.Product ImageBLU VIVO XI Plus 128mb smartphone 6gb RAMAdditional ImagesBLU VIVO XI Plus 128mb smartphone 6gb RAM, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275649535061_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275649535061_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275649535061_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275649535061_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275649535061_6_0_1/225x225.jpg)
     
     
 

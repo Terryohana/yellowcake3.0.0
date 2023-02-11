@@ -3,23 +3,22 @@
       title: lot of 2 blu cell phones advance 5 0 a050u vivo xl rosegold dead parts 
       status: Published
       date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/S2UAAOSwq1xh-ZbH/s-l225.jpg
-      categories: News
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/S2UAAOSwq1xh-ZbH/s-l225.jpg'
+      categories: 
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-      
+
         
 ---
 $
-
-Be ahead of the curve LOT OF 2 BLU CELL PHONES - ADVANCE 5.0 A050U & VIVO XL RoseGOLD  - DEAD - PARTS! - a 2-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/275177303961?hash=item4011d86f99%3Ag%3AS2UAAOSwq1xh-ZbH&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the LOT OF 2 BLU CELL PHONES - ADVANCE 5.0 A050U & VIVO XL RoseGOLD  - DEAD - PARTS!. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/S2UAAOSwq1xh-ZbH/s-l225.jpg)and the additional images are![LOT OF 2 BLU CELL PHONES - ADVANCE 5.0 A050U & VIVO XL RoseGOLD  - DEAD - PARTS!](https://i.ebayimg.com/images/g/S2UAAOSwq1xh-ZbH/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275177303961_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_12_0_1/225x225.jpg)
-
-
+    High demand, this Cell Phones & Smartphones device is available at a discounted price of 20.88 after a 13% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/275177303961?hash=item4011d86f99%3Ag%3AS2UAAOSwq1xh-ZbH&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the LOT OF 2 BLU CELL PHONES - ADVANCE 5.0 A050U & VIVO XL RoseGOLD  - DEAD - PARTS!. The shipping cost is undefined.Product ImageLOT OF 2 BLU CELL PHONES - ADVANCE 5.0 A050U & VIVO XL RoseGOLD  - DEAD - PARTS!Additional ImagesLOT OF 2 BLU CELL PHONES - ADVANCE 5.0 A050U & VIVO XL RoseGOLD  - DEAD - PARTS!, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275177303961_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275177303961_12_0_1/225x225.jpg)
+    
+    
 
  ## Technical Facts 
 
@@ -58,6 +57,8 @@ $[Click Here](https://www.ebay.com/itm/275177303961?hash=item4011d86f99%3Ag%3AS2
 
 
 
-
-
-
+    
+    
+    
+    
+    
