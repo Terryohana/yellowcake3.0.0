@@ -2,8 +2,9 @@
       template: SinglePost
       title: ZTE Cymbal U (8GB) 2.8" Flip Phone US 4G LTE GSM Unlocked US Model Z2335CC
       status: Published
-      date: '2023-02-10'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/BpMAAOSwxkliYxZN/s-l225.jpg'
+      date: '2023-02-11'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/BpMAAOSwxkliYxZN/s-l225.jpg
+      category: News , Updates
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -11,12 +12,13 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th ZTE Cymbal U (8GB) 2.8" Flip Phone US 4G LTE GSM Unlocked US Model Z2335CC from a well-known brand.This Lightweight smartphone is sure to be a Artistic-statement in your home. [Click Here](https://www.ebay.com/itm/154960807241?hash=item2414624549%3Ag%3ABpMAAOSwxkliYxZN&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the ZTE Cymbal U (8GB) 2.8" Flip Phone US 4G LTE GSM Unlocked US Model Z2335CC. Shipping cost is undefined.Here is the posting visibly ![ZTE Cymbal U (8GB) 2.8" Flip Phone US 4G LTE GSM Unlocked US Model Z2335CC](https://i.ebayimg.com/thumbs/images/g/BpMAAOSwxkliYxZN/s-l225.jpg) to check out more postings here... ![ZTE Cymbal U (8GB) 2.8" Flip Phone US 4G LTE GSM Unlocked US Model Z2335CC](https://i.ebayimg.com/images/g/BpMAAOSwxkliYxZN/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/154960807241_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154960807241_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154960807241_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154960807241_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154960807241_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154960807241_7_0_1/225x225.jpg)'
 
-      
+Stay connected ZTE Cymbal U (8GB) 2.8" Flip Phone US 4G LTE GSM Unlocked US Model Z2335CC - a 2-star Cell Phones & Smartphones device. [Click Here](https://www.ebay.com/itm/154960807241?hash=item2414624549%3Ag%3ABpMAAOSwxkliYxZN&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the ZTE Cymbal U (8GB) 2.8" Flip Phone US 4G LTE GSM Unlocked US Model Z2335CC. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/BpMAAOSwxkliYxZN/s-l225.jpg)and the additional images are![ZTE Cymbal U (8GB) 2.8" Flip Phone US 4G LTE GSM Unlocked US Model Z2335CC](https://i.ebayimg.com/images/g/BpMAAOSwxkliYxZN/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/154960807241_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154960807241_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154960807241_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154960807241_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154960807241_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154960807241_7_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -30,7 +32,7 @@ $
 
       
 
- - Listed Price- 58.79 
+ - Listed Price- 57.61 
 
 
       
@@ -40,7 +42,7 @@ $
 
       
 
- - Feedback score - 31013 
+ - Feedback score - 31015 
 
 
       
@@ -56,4 +58,5 @@ $
 
 
 
-      -
+
+

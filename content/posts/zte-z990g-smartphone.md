@@ -2,22 +2,23 @@
       template: SinglePost
       title: ZTE Z990G Smartphone
       status: Published
-      date: '2023-02-10'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/D5gAAOSwVbBj2XDu/s-l225.jpg
+      date: '2023-02-11'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/D5gAAOSwVbBj2XDu/s-l225.jpg'
+      category: News , Updates
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-        
+
         
 ---
 $
-
-Be ahead of the curve ZTE Z990G Smartphone - a 2-star Cell Phones & Smartphones device. [Click Here](https://www.ebay.com/itm/385385024433?hash=item59babccbb1%3Ag%3AD5gAAOSwVbBj2XDu&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the ZTE Z990G Smartphone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/D5gAAOSwVbBj2XDu/s-l225.jpg)and the additional images are![ZTE Z990G Smartphone](https://i.ebayimg.com/images/g/D5gAAOSwVbBj2XDu/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/385385024433_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385385024433_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385385024433_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385385024433_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385385024433_6_0_1/225x225.jpg)
-
-
+    Proven quality, this Cell Phones & Smartphones device is available at a discounted price of 13.05 after a 13% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional image urls for the ZTE Z990G Smartphone. The shipping cost is undefined.Product ImageZTE Z990G SmartphoneAdditional ImagesZTE Z990G Smartphone, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/385385024433_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385385024433_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385385024433_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385385024433_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385385024433_6_0_1/225x225.jpg)
+    
+    
 
  ## Technical Facts 
 
@@ -41,7 +42,7 @@ Be ahead of the curve ZTE Z990G Smartphone - a 2-star Cell Phones & Smartphones 
 
       
 
- - Feedback score - 215 
+ - Feedback score - 216 
 
 
       
@@ -56,6 +57,8 @@ Be ahead of the curve ZTE Z990G Smartphone - a 2-star Cell Phones & Smartphones 
 
 
 
-
-
-
+    
+    
+    
+    
+    

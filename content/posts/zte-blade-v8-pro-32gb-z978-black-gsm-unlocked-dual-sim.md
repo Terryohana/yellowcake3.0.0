@@ -2,8 +2,10 @@
       template: SinglePost
       title: ZTE Blade V8 Pro 32GB (Z978) - Black -  GSM Unlocked - Dual Sim
       status: Published
-      date: '2023-02-10'
+      date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/C0sAAOSwJnJjzCAO/s-l225.jpg'
+      category: News , Updates
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -14,7 +16,7 @@
         
 ---
 $
-    Trusted brand, this Cell Phones & Smartphones device is available at a discounted price of 17.7911 after a 11% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional image urls for the ZTE Blade V8 Pro 32GB (Z978) - Black -  GSM Unlocked - Dual Sim. The shipping cost is undefined.Product ImageZTE Blade V8 Pro 32GB (Z978) - Black -  GSM Unlocked - Dual SimAdditional ImagesZTE Blade V8 Pro 32GB (Z978) - Black -  GSM Unlocked - Dual Sim, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144910884309_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_12_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_13_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_14_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_15_0_1/225x225.jpg)
+    Widely accepted, this Cell Phones & Smartphones device is available at a discounted price of 17.391299999999998 after a 13% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional image urls for the ZTE Blade V8 Pro 32GB (Z978) - Black -  GSM Unlocked - Dual Sim. The shipping cost is undefined.Product ImageZTE Blade V8 Pro 32GB (Z978) - Black -  GSM Unlocked - Dual SimAdditional ImagesZTE Blade V8 Pro 32GB (Z978) - Black -  GSM Unlocked - Dual Sim, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144910884309_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_12_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_13_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_14_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144910884309_15_0_1/225x225.jpg)
     
     
 

@@ -2,8 +2,10 @@
       template: SinglePost
       title: ZTE Avid Trio (Z833) 4 GB Blue (MetroPCS) Android Smartphone Network unlocked
       status: Published
-      date: '2023-02-10'
+      date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/32oAAOSwu7hj5YCm/s-l225.jpg'
+      category: News , Updates
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -14,7 +16,7 @@
 
 ---
 $
-      Introducing th ZTE Avid Trio (Z833) 4 GB Blue (MetroPCS) Android Smartphone Network unlocked from a well-known brand.This Carriable device  is sure to be a Showpiece in your home. [Click Here](https://www.ebay.com/itm/354574719798?hash=item528e4cdb36%3Ag%3A32oAAOSwu7hj5YCm&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the ZTE Avid Trio (Z833) 4 GB Blue (MetroPCS) Android Smartphone Network unlocked. Shipping cost is undefined.Here is the posting visibly ![ZTE Avid Trio (Z833) 4 GB Blue (MetroPCS) Android Smartphone Network unlocked](https://i.ebayimg.com/thumbs/images/g/32oAAOSwu7hj5YCm/s-l225.jpg) to check out more postings here... ![ZTE Avid Trio (Z833) 4 GB Blue (MetroPCS) Android Smartphone Network unlocked](https://i.ebayimg.com/images/g/32oAAOSwu7hj5YCm/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/354574719798_2_0_1/225x225.jpg)'
+      Introducing th ZTE Avid Trio (Z833) 4 GB Blue (MetroPCS) Android Smartphone Network unlocked from a well-known brand.This Miniature smartphone is sure to be a Display-center in your home. [Click Here](https://www.ebay.com/itm/354574719798?hash=item528e4cdb36%3Ag%3A32oAAOSwu7hj5YCm&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the ZTE Avid Trio (Z833) 4 GB Blue (MetroPCS) Android Smartphone Network unlocked. Shipping cost is undefined.Here is the posting visibly ![ZTE Avid Trio (Z833) 4 GB Blue (MetroPCS) Android Smartphone Network unlocked](https://i.ebayimg.com/thumbs/images/g/32oAAOSwu7hj5YCm/s-l225.jpg) to check out more postings here... ![ZTE Avid Trio (Z833) 4 GB Blue (MetroPCS) Android Smartphone Network unlocked](https://i.ebayimg.com/images/g/32oAAOSwu7hj5YCm/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/354574719798_2_0_1/225x225.jpg)'
 
       
 

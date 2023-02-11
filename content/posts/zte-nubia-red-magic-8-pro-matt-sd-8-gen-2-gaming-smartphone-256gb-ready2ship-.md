@@ -2,8 +2,10 @@
       template: SinglePost
       title: ZTE Nubia Red Magic 8 Pro Matt SD 8 Gen 2 Gaming Smartphone 256GB READY2SHIP 🔥
       status: Published
-      date: '2023-02-10'
+      date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/d~0AAOSwqkdjqzHB/s-l225.jpg'
+      category: News , Updates
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -14,7 +16,7 @@
 
 ---
 $
-      Introducing th ZTE Nubia Red Magic 8 Pro Matt SD 8 Gen 2 Gaming Smartphone 256GB READY2SHIP 🔥 from a well-known brand.This Pocket-sized device  is sure to be a Decorative-display in your home. [Click Here](https://www.ebay.com/itm/115654966465?hash=item1aed92bcc1%3Ag%3Ad%7E0AAOSwqkdjqzHB&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the ZTE Nubia Red Magic 8 Pro Matt SD 8 Gen 2 Gaming Smartphone 256GB READY2SHIP 🔥. Shipping cost is undefined.Here is the posting visibly ![ZTE Nubia Red Magic 8 Pro Matt SD 8 Gen 2 Gaming Smartphone 256GB READY2SHIP 🔥](https://i.ebayimg.com/thumbs/images/g/d~0AAOSwqkdjqzHB/s-l225.jpg) to check out more postings here... ![ZTE Nubia Red Magic 8 Pro Matt SD 8 Gen 2 Gaming Smartphone 256GB READY2SHIP 🔥](https://i.ebayimg.com/images/g/d~0AAOSwqkdjqzHB/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/115654966465_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_12_0_1/225x225.jpg)'
+      Introducing th ZTE Nubia Red Magic 8 Pro Matt SD 8 Gen 2 Gaming Smartphone 256GB READY2SHIP 🔥 from a well-known brand.This Lightweight smartphone is sure to be a Decorative-element in your home. [Click Here](https://www.ebay.com/itm/115654966465?hash=item1aed92bcc1%3Ag%3Ad%7E0AAOSwqkdjqzHB&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the ZTE Nubia Red Magic 8 Pro Matt SD 8 Gen 2 Gaming Smartphone 256GB READY2SHIP 🔥. Shipping cost is undefined.Here is the posting visibly ![ZTE Nubia Red Magic 8 Pro Matt SD 8 Gen 2 Gaming Smartphone 256GB READY2SHIP 🔥](https://i.ebayimg.com/thumbs/images/g/d~0AAOSwqkdjqzHB/s-l225.jpg) to check out more postings here... ![ZTE Nubia Red Magic 8 Pro Matt SD 8 Gen 2 Gaming Smartphone 256GB READY2SHIP 🔥](https://i.ebayimg.com/images/g/d~0AAOSwqkdjqzHB/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/115654966465_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115654966465_12_0_1/225x225.jpg)'
 
       
 
@@ -40,7 +42,7 @@ $
 
       
 
- - Feedback score - 783 
+ - Feedback score - 784 
 
 
       

@@ -2,22 +2,23 @@
       template: SinglePost
       title: ZTE Blade Max 2s (Z6410S) 32GB (Boost Mobile) Smartphone - CHECK IMEI? - J9773
       status: Published
-      date: '2023-02-10'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/oNIAAOSwGqtj3B~h/s-l225.jpg
+      date: '2023-02-11'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/oNIAAOSwGqtj3B~h/s-l225.jpg'
+      category: News , Updates
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-        
-        
+      
+
 ---
 $
+      Introducing th ZTE Blade Max 2s (Z6410S) 32GB (Boost Mobile) Smartphone - CHECK IMEI? - J9773 from a well-known brand.This Pocket-sized device  is sure to be a Decorative-element in your home. [Click Here](https://www.ebay.com/itm/134434754135?hash=item1f4cef8e57%3Ag%3AoNIAAOSwGqtj3B%7Eh&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the ZTE Blade Max 2s (Z6410S) 32GB (Boost Mobile) Smartphone - CHECK IMEI? - J9773. Shipping cost is undefined.Here is the posting visibly ![ZTE Blade Max 2s (Z6410S) 32GB (Boost Mobile) Smartphone - CHECK IMEI? - J9773](https://i.ebayimg.com/thumbs/images/g/oNIAAOSwGqtj3B~h/s-l225.jpg) to check out more postings here... ![ZTE Blade Max 2s (Z6410S) 32GB (Boost Mobile) Smartphone - CHECK IMEI? - J9773](https://i.ebayimg.com/images/g/oNIAAOSwGqtj3B~h/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134434754135_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134434754135_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134434754135_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134434754135_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134434754135_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134434754135_7_0_1/225x225.jpg)'
 
-Make a difference ZTE Blade Max 2s (Z6410S) 32GB (Boost Mobile) Smartphone - CHECK IMEI? - J9773 - a 2-star Cell Phones & Smartphones device. [Click Here](https://www.ebay.com/itm/134434754135?hash=item1f4cef8e57%3Ag%3AoNIAAOSwGqtj3B%7Eh&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the ZTE Blade Max 2s (Z6410S) 32GB (Boost Mobile) Smartphone - CHECK IMEI? - J9773. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/oNIAAOSwGqtj3B~h/s-l225.jpg)and the additional images are![ZTE Blade Max 2s (Z6410S) 32GB (Boost Mobile) Smartphone - CHECK IMEI? - J9773](https://i.ebayimg.com/images/g/oNIAAOSwGqtj3B~h/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134434754135_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134434754135_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134434754135_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134434754135_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134434754135_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134434754135_7_0_1/225x225.jpg)
-
-
+      
 
  ## Technical Facts 
 
@@ -41,7 +42,7 @@ Make a difference ZTE Blade Max 2s (Z6410S) 32GB (Boost Mobile) Smartphone - CHE
 
       
 
- - Feedback score - 38583 
+ - Feedback score - 38592 
 
 
       
@@ -57,5 +58,4 @@ Make a difference ZTE Blade Max 2s (Z6410S) 32GB (Boost Mobile) Smartphone - CHE
 
 
 
-
-
+      -

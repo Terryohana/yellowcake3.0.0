@@ -1,23 +1,24 @@
 ---
       template: SinglePost
-      title: ZTE Axon M Z999 GSM Android Smartphone Black / 64GB /AT&T
+      title: ZTE Axon M Z999 GSM Android Smartphone Black / 64GB/AT&T
       status: Published
-      date: '2023-02-10'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/XEEAAOSwWJJjwftw/s-l225.jpg
+      date: '2023-02-11'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/fBwAAOSwqkRj2A8d/s-l225.jpg'
+      category: News , Updates
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-        
-        
+      
+
 ---
 $
+      Introducing th ZTE Axon M Z999 GSM Android Smartphone Black / 64GB/AT&T from a well-known brand.This Mobile device  is sure to be a Subject-of-interest in your home. [Click Here](https://www.ebay.com/itm/394457183045?hash=item5bd77af345%3Ag%3AfBwAAOSwqkRj2A8d&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the ZTE Axon M Z999 GSM Android Smartphone Black / 64GB/AT&T. Shipping cost is undefined.Here is the posting visibly ![ZTE Axon M Z999 GSM Android Smartphone Black / 64GB/AT&T](https://i.ebayimg.com/thumbs/images/g/fBwAAOSwqkRj2A8d/s-l225.jpg) to check out more postings here... ![ZTE Axon M Z999 GSM Android Smartphone Black / 64GB/AT&T](https://i.ebayimg.com/images/g/fBwAAOSwqkRj2A8d/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/394457183045_2_0_1/225x225.jpg)'
 
-Stay connected ZTE Axon M Z999 GSM Android Smartphone Black / 64GB /AT&T - a 3-star Cell Phones & Smartphones device. [Click Here](https://www.ebay.com/itm/394452911661?hash=item5bd739c62d%3Ag%3AXEEAAOSwWJJjwftw&amdata=enc%3AAQAHAAAA4E33%2BRMWJvSzYCiRsPZbPq60qxgWQZ%2Br%2FryV%2Bb%2FqTbt4CDIUX6lyTje3j%2BDbDxmYRJgA29FRQVd8%2FzbiUaWnSj%2FtXwGbHkSsPn5qlmCKGFdPWcQJgJEcAPQK5KMQfeh%2BxBLDuRglLYqfFzCuASAKrEeXNdPgeIgtRcukboXv5q%2BnVDe8sARR832h%2F4gNxLF%2Berz8I2pbfXdu0x1c8Kc2Y9e3SEfbdkflG2Wf1nvCNYCMLQR53OcOosBc3AHGNtmXADJ9f9f2%2FePmiCLkvS4E29S0TdvpoS5Tv67rVMWQfOAb&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the ZTE Axon M Z999 GSM Android Smartphone Black / 64GB /AT&T. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/XEEAAOSwWJJjwftw/s-l225.jpg)and the additional images are![ZTE Axon M Z999 GSM Android Smartphone Black / 64GB /AT&T](https://i.ebayimg.com/images/g/XEEAAOSwWJJjwftw/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/394452911661_2_0_1/225x225.jpg)
-
-
+      
 
  ## Technical Facts 
 
@@ -26,12 +27,12 @@ Stay connected ZTE Axon M Z999 GSM Android Smartphone Black / 64GB /AT&T - a 3-s
      
       
 
- - Condition- Open box 
+ - Condition- Used 
 
 
       
 
- - Listed Price- 154.32 
+ - Listed Price- 128.24 
 
 
       
@@ -41,7 +42,7 @@ Stay connected ZTE Axon M Z999 GSM Android Smartphone Black / 64GB /AT&T - a 3-s
 
       
 
- - Feedback score - 57108 
+ - Feedback score - 57111 
 
 
       
@@ -57,5 +58,4 @@ Stay connected ZTE Axon M Z999 GSM Android Smartphone Black / 64GB /AT&T - a 3-s
 
 
 
-
-
+      -

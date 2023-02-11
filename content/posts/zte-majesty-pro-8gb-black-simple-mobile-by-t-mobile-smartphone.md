@@ -2,8 +2,10 @@
       template: SinglePost
       title: ZTE Majesty Pro - 8GB - Black (Simple Mobile by T-Mobile) Smartphone
       status: Published
-      date: '2023-02-10'
+      date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/RC4AAOSwCAFiO3Bq/s-l225.jpg'
+      category: News , Updates
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -14,7 +16,7 @@
 
 ---
 $
-      Introducing th ZTE Majesty Pro - 8GB - Black (Simple Mobile by T-Mobile) Smartphone from a well-known brand.This Carriable device  is sure to be a Unique-item in your home. [Click Here](https://www.ebay.com/itm/255451463760?hash=item3b7a180050%3Ag%3ARC4AAOSwCAFiO3Bq&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the ZTE Majesty Pro - 8GB - Black (Simple Mobile by T-Mobile) Smartphone. Shipping cost is undefined.Here is the posting visibly ![ZTE Majesty Pro - 8GB - Black (Simple Mobile by T-Mobile) Smartphone](https://i.ebayimg.com/thumbs/images/g/RC4AAOSwCAFiO3Bq/s-l225.jpg) to check out more postings here... ![ZTE Majesty Pro - 8GB - Black (Simple Mobile by T-Mobile) Smartphone](https://i.ebayimg.com/images/g/RC4AAOSwCAFiO3Bq/s-l1600.jpg), ![check vendor page]()'
+      Introducing th ZTE Majesty Pro - 8GB - Black (Simple Mobile by T-Mobile) Smartphone from a well-known brand.This handheld hand held device is sure to be a conversation piece in your home. [Click Here](https://www.ebay.com/itm/255451463760?hash=item3b7a180050%3Ag%3ARC4AAOSwCAFiO3Bq&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the ZTE Majesty Pro - 8GB - Black (Simple Mobile by T-Mobile) Smartphone. Shipping cost is undefined.Here is the posting visibly ![ZTE Majesty Pro - 8GB - Black (Simple Mobile by T-Mobile) Smartphone](https://i.ebayimg.com/thumbs/images/g/RC4AAOSwCAFiO3Bq/s-l225.jpg) to check out more postings here... ![ZTE Majesty Pro - 8GB - Black (Simple Mobile by T-Mobile) Smartphone](https://i.ebayimg.com/images/g/RC4AAOSwCAFiO3Bq/s-l1600.jpg), ![check vendor page]()'
 
       
 
