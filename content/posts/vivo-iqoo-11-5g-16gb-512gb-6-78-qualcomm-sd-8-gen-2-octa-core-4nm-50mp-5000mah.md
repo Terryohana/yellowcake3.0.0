@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/YOYAAOSw6~tjo2w-/s-l225.jpg'
-      category: News
+      
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +15,7 @@
 
 ---
 $
-      Introducing th Vivo IQOO 11 5G 16GB/512GB 6.78" Qualcomm SD 8 Gen 2 Octa Core 4nm 50MP 5000mAh from a well-known brand.This Hand-held hand held device is sure to be a Piece-de-resistance in your home. [Click Here](https://www.ebay.com/itm/275589041236?hash=item402a630c54%3Ag%3AYOYAAOSw6%7Etjo2w-&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo IQOO 11 5G 16GB/512GB 6.78" Qualcomm SD 8 Gen 2 Octa Core 4nm 50MP 5000mAh. Shipping cost is undefined.Here is the posting visibly ![Vivo IQOO 11 5G 16GB/512GB 6.78" Qualcomm SD 8 Gen 2 Octa Core 4nm 50MP 5000mAh](https://i.ebayimg.com/thumbs/images/g/YOYAAOSw6~tjo2w-/s-l225.jpg) to check out more postings here... ![Vivo IQOO 11 5G 16GB/512GB 6.78" Qualcomm SD 8 Gen 2 Octa Core 4nm 50MP 5000mAh](https://i.ebayimg.com/images/g/YOYAAOSw6~tjo2w-/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275589041236_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275589041236_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275589041236_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275589041236_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275589041236_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275589041236_7_0_1/225x225.jpg)'
+      Introducing th Vivo IQOO 11 5G 16GB/512GB 6.78" Qualcomm SD 8 Gen 2 Octa Core 4nm 50MP 5000mAh from a well-known brand.This Mobile smartphone is sure to be a Point-of-interest in your home. [Click Here](https://www.ebay.com/itm/275589041236?hash=item402a630c54%3Ag%3AYOYAAOSw6%7Etjo2w-&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo IQOO 11 5G 16GB/512GB 6.78" Qualcomm SD 8 Gen 2 Octa Core 4nm 50MP 5000mAh. Shipping cost is undefined.Here is the posting visibly ![Vivo IQOO 11 5G 16GB/512GB 6.78" Qualcomm SD 8 Gen 2 Octa Core 4nm 50MP 5000mAh](https://i.ebayimg.com/thumbs/images/g/YOYAAOSw6~tjo2w-/s-l225.jpg) to check out more postings here... ![Vivo IQOO 11 5G 16GB/512GB 6.78" Qualcomm SD 8 Gen 2 Octa Core 4nm 50MP 5000mAh](https://i.ebayimg.com/images/g/YOYAAOSw6~tjo2w-/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275589041236_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275589041236_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275589041236_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275589041236_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275589041236_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275589041236_7_0_1/225x225.jpg)'
 
       
 

@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/9VYAAOSw1~NhSEhy/s-l225.jpg'
-      category: News
+      
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +15,7 @@
 
 ---
 $
-      Introducing th VIVO X70 Pro 5G 6.56" 120Hz DualSIM 12GB RAM/256GB  GLOBAL VERSION Phone ByFedEx from a well-known brand.This Transportable device  is sure to be a Interactive-piece in your home. [Click Here](https://www.ebay.com/itm/324807638290?hash=item4ba00b3d12%3Ag%3A9VYAAOSw1%7ENhSEhy&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the VIVO X70 Pro 5G 6.56" 120Hz DualSIM 12GB RAM/256GB  GLOBAL VERSION Phone ByFedEx. Shipping cost is undefined.Here is the posting visibly ![VIVO X70 Pro 5G 6.56" 120Hz DualSIM 12GB RAM/256GB  GLOBAL VERSION Phone ByFedEx](https://i.ebayimg.com/thumbs/images/g/9VYAAOSw1~NhSEhy/s-l225.jpg) to check out more postings here... ![VIVO X70 Pro 5G 6.56" 120Hz DualSIM 12GB RAM/256GB  GLOBAL VERSION Phone ByFedEx](https://i.ebayimg.com/images/g/9VYAAOSw1~NhSEhy/s-l640.jpg), ![check vendor page]()'
+      Introducing th VIVO X70 Pro 5G 6.56" 120Hz DualSIM 12GB RAM/256GB  GLOBAL VERSION Phone ByFedEx from a well-known brand.This handheld smartphone is sure to be a conversation piece in your home. [Click Here](https://www.ebay.com/itm/324807638290?hash=item4ba00b3d12%3Ag%3A9VYAAOSw1%7ENhSEhy&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the VIVO X70 Pro 5G 6.56" 120Hz DualSIM 12GB RAM/256GB  GLOBAL VERSION Phone ByFedEx. Shipping cost is undefined.Here is the posting visibly ![VIVO X70 Pro 5G 6.56" 120Hz DualSIM 12GB RAM/256GB  GLOBAL VERSION Phone ByFedEx](https://i.ebayimg.com/thumbs/images/g/9VYAAOSw1~NhSEhy/s-l225.jpg) to check out more postings here... ![VIVO X70 Pro 5G 6.56" 120Hz DualSIM 12GB RAM/256GB  GLOBAL VERSION Phone ByFedEx](https://i.ebayimg.com/images/g/9VYAAOSw1~NhSEhy/s-l640.jpg), ![check vendor page]()'
 
       
 

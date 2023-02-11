@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/poQAAOSwjoBjq1kW/s-l225.jpg'
-      category: News
+      
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +15,7 @@
 
 ---
 $
-      Introducing th Blu Vivo XL3 Plus Cellphone (Black 32GB) Unlocked Dual Sim CRACKED REAR CAMERA from a well-known brand.This Lightweight smartphone is sure to be a Eye-catcher in your home. [Click Here](https://www.ebay.com/itm/165855228350?hash=item269dbdf1be%3Ag%3ApoQAAOSwjoBjq1kW&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Blu Vivo XL3 Plus Cellphone (Black 32GB) Unlocked Dual Sim CRACKED REAR CAMERA. Shipping cost is undefined.Here is the posting visibly ![Blu Vivo XL3 Plus Cellphone (Black 32GB) Unlocked Dual Sim CRACKED REAR CAMERA](https://i.ebayimg.com/thumbs/images/g/poQAAOSwjoBjq1kW/s-l225.jpg) to check out more postings here... ![Blu Vivo XL3 Plus Cellphone (Black 32GB) Unlocked Dual Sim CRACKED REAR CAMERA](https://i.ebayimg.com/images/g/poQAAOSwjoBjq1kW/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165855228350_2_0_1/225x225.jpg)'
+      Introducing th Blu Vivo XL3 Plus Cellphone (Black 32GB) Unlocked Dual Sim CRACKED REAR CAMERA from a well-known brand.This Transportable device  is sure to be a Piece-de-resistance in your home. [Click Here](https://www.ebay.com/itm/165855228350?hash=item269dbdf1be%3Ag%3ApoQAAOSwjoBjq1kW&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Blu Vivo XL3 Plus Cellphone (Black 32GB) Unlocked Dual Sim CRACKED REAR CAMERA. Shipping cost is undefined.Here is the posting visibly ![Blu Vivo XL3 Plus Cellphone (Black 32GB) Unlocked Dual Sim CRACKED REAR CAMERA](https://i.ebayimg.com/thumbs/images/g/poQAAOSwjoBjq1kW/s-l225.jpg) to check out more postings here... ![Blu Vivo XL3 Plus Cellphone (Black 32GB) Unlocked Dual Sim CRACKED REAR CAMERA](https://i.ebayimg.com/images/g/poQAAOSwjoBjq1kW/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165855228350_2_0_1/225x225.jpg)'
 
       
 

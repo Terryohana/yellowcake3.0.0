@@ -4,7 +4,6 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/kAAAAOSw7T9gODNn/s-l225.jpg'
-      category: News
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +15,7 @@
         
 ---
 $
-    Outstanding performance, this Cell Phones & Smartphones device is available at a discounted price of 121.7913 after a 13% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/133675929468?hash=item1f1fb4cf7c%3Ag%3AkAAAAOSw7T9gODNn&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the BLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual-SIM Android Smartphone. The shipping cost is undefined.Product ImageBLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual-SIM Android SmartphoneAdditional ImagesBLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual-SIM Android Smartphone, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/133675929468_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/133675929468_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/133675929468_4_0_1/225x225.jpg)
+    User-endorsed, this Cell Phones & Smartphones device is available at a discounted price of 120.3914 after a 14% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/133675929468?hash=item1f1fb4cf7c%3Ag%3AkAAAAOSw7T9gODNn&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the BLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual-SIM Android Smartphone. The shipping cost is undefined.Product ImageBLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual-SIM Android SmartphoneAdditional ImagesBLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual-SIM Android Smartphone, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/133675929468_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/133675929468_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/133675929468_4_0_1/225x225.jpg)
     
     
 

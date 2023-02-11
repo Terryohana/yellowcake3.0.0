@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/WiIAAOSwtOdjfz93/s-l225.jpg'
-      category: News
+      
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +15,7 @@
 
 ---
 $
-      Introducing th VIVO X90 Pro 5G 6.78" AMOLED GLOBAL VERSION DualSIM 50MP Dimensity 9200 By FedEx from a well-known brand.This Mobile hand held device is sure to be a Talking-point in your home. [Click Here](https://www.ebay.com/itm/325489228266?hash=item4bc8ab79ea%3Ag%3AWiIAAOSwtOdjfz93&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the VIVO X90 Pro 5G 6.78" AMOLED GLOBAL VERSION DualSIM 50MP Dimensity 9200 By FedEx. Shipping cost is undefined.Here is the posting visibly ![VIVO X90 Pro 5G 6.78" AMOLED GLOBAL VERSION DualSIM 50MP Dimensity 9200 By FedEx](https://i.ebayimg.com/thumbs/images/g/WiIAAOSwtOdjfz93/s-l225.jpg) to check out more postings here... ![VIVO X90 Pro 5G 6.78" AMOLED GLOBAL VERSION DualSIM 50MP Dimensity 9200 By FedEx](https://i.ebayimg.com/images/g/WiIAAOSwtOdjfz93/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325489228266_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325489228266_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325489228266_4_0_1/225x225.jpg)'
+      Introducing th VIVO X90 Pro 5G 6.78" AMOLED GLOBAL VERSION DualSIM 50MP Dimensity 9200 By FedEx from a well-known brand.This Mobile smartphone is sure to be a Decorative-display in your home. [Click Here](https://www.ebay.com/itm/325489228266?hash=item4bc8ab79ea%3Ag%3AWiIAAOSwtOdjfz93&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the VIVO X90 Pro 5G 6.78" AMOLED GLOBAL VERSION DualSIM 50MP Dimensity 9200 By FedEx. Shipping cost is undefined.Here is the posting visibly ![VIVO X90 Pro 5G 6.78" AMOLED GLOBAL VERSION DualSIM 50MP Dimensity 9200 By FedEx](https://i.ebayimg.com/thumbs/images/g/WiIAAOSwtOdjfz93/s-l225.jpg) to check out more postings here... ![VIVO X90 Pro 5G 6.78" AMOLED GLOBAL VERSION DualSIM 50MP Dimensity 9200 By FedEx](https://i.ebayimg.com/images/g/WiIAAOSwtOdjfz93/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325489228266_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325489228266_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325489228266_4_0_1/225x225.jpg)'
 
       
 

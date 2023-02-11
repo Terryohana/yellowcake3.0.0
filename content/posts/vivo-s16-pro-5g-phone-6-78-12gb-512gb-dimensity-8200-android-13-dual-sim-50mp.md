@@ -4,7 +4,6 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/TCoAAOSw-oVjpSFm/s-l225.jpg'
-      category: News
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +15,7 @@
         
 ---
 $
-    Widely used, this Cell Phones & Smartphones device is available at a discounted price of 669.9313999999999 after a 14% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/225313444823?hash=item3475ba53d7%3Ag%3ATCoAAOSw-oVjpSFm&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the vivo S16 Pro 5G Phone 6.78'' 12GB 512GB Dimensity 8200 Android 13 Dual SIM 50MP. The shipping cost is undefined.Product Imagevivo S16 Pro 5G Phone 6.78'' 12GB 512GB Dimensity 8200 Android 13 Dual SIM 50MPAdditional Imagesvivo S16 Pro 5G Phone 6.78'' 12GB 512GB Dimensity 8200 Android 13 Dual SIM 50MP, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/225313444823_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225313444823_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225313444823_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225313444823_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225313444823_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225313444823_7_0_1/225x225.jpg)
+    Unbeatable value, this Cell Phones & Smartphones device is available at a discounted price of 669.9313999999999 after a 14% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/225313444823?hash=item3475ba53d7%3Ag%3ATCoAAOSw-oVjpSFm&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the vivo S16 Pro 5G Phone 6.78'' 12GB 512GB Dimensity 8200 Android 13 Dual SIM 50MP. The shipping cost is undefined.Product Imagevivo S16 Pro 5G Phone 6.78'' 12GB 512GB Dimensity 8200 Android 13 Dual SIM 50MPAdditional Imagesvivo S16 Pro 5G Phone 6.78'' 12GB 512GB Dimensity 8200 Android 13 Dual SIM 50MP, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/225313444823_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225313444823_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225313444823_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225313444823_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225313444823_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225313444823_7_0_1/225x225.jpg)
     
     
 

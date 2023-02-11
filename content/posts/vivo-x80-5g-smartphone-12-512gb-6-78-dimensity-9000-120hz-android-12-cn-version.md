@@ -4,7 +4,6 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/-xcAAOSw3oRjkvIk/s-l225.jpg'
-      category: News
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +15,7 @@
         
 ---
 $
-    High-performance product, this Cell Phones & Smartphones device is available at a discounted price of 579.321 after a 10% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/175525683576?hash=item28de256178%3Ag%3A-xcAAOSw3oRjkvIk&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo X80 5G SmartPhone 12+512GB 6.78" Dimensity 9000 120Hz Android 12 CN Version. The shipping cost is undefined.Product ImageVivo X80 5G SmartPhone 12+512GB 6.78" Dimensity 9000 120Hz Android 12 CN VersionAdditional ImagesVivo X80 5G SmartPhone 12+512GB 6.78" Dimensity 9000 120Hz Android 12 CN Version, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175525683576_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525683576_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525683576_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525683576_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525683576_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525683576_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525683576_8_0_1/225x225.jpg)
+    Widely used, this Cell Phones & Smartphones device is available at a discounted price of 579.321 after a 10% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/175525683576?hash=item28de256178%3Ag%3A-xcAAOSw3oRjkvIk&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo X80 5G SmartPhone 12+512GB 6.78" Dimensity 9000 120Hz Android 12 CN Version. The shipping cost is undefined.Product ImageVivo X80 5G SmartPhone 12+512GB 6.78" Dimensity 9000 120Hz Android 12 CN VersionAdditional ImagesVivo X80 5G SmartPhone 12+512GB 6.78" Dimensity 9000 120Hz Android 12 CN Version, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175525683576_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525683576_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525683576_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525683576_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525683576_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525683576_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175525683576_8_0_1/225x225.jpg)
     
     
 

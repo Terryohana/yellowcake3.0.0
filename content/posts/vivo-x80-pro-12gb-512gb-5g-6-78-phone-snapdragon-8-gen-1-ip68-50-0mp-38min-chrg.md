@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/MbEAAOSwWPliausn/s-l225.jpg'
-      category: News
+      
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +15,7 @@
 
 ---
 $
-      Introducing th Vivo X80 PRO 12GB 512GB 5G 6.78" Phone Snapdragon 8 Gen 1 IP68 50.0MP-38MIN CHRG from a well-known brand.This Lightweight smartphone is sure to be a Decorative-display in your home. [Click Here](https://www.ebay.com/itm/275292057835?hash=item4018af70eb%3Ag%3AMbEAAOSwWPliausn&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo X80 PRO 12GB 512GB 5G 6.78" Phone Snapdragon 8 Gen 1 IP68 50.0MP-38MIN CHRG. Shipping cost is undefined.Here is the posting visibly ![Vivo X80 PRO 12GB 512GB 5G 6.78" Phone Snapdragon 8 Gen 1 IP68 50.0MP-38MIN CHRG](https://i.ebayimg.com/thumbs/images/g/MbEAAOSwWPliausn/s-l225.jpg) to check out more postings here... ![Vivo X80 PRO 12GB 512GB 5G 6.78" Phone Snapdragon 8 Gen 1 IP68 50.0MP-38MIN CHRG](https://i.ebayimg.com/images/g/MbEAAOSwWPliausn/s-l640.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275292057835_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275292057835_3_0_1/225x225.jpg)'
+      Introducing th Vivo X80 PRO 12GB 512GB 5G 6.78" Phone Snapdragon 8 Gen 1 IP68 50.0MP-38MIN CHRG from a well-known brand.This handheld hand held device is sure to be a Attention-grabber in your home. [Click Here](https://www.ebay.com/itm/275292057835?hash=item4018af70eb%3Ag%3AMbEAAOSwWPliausn&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo X80 PRO 12GB 512GB 5G 6.78" Phone Snapdragon 8 Gen 1 IP68 50.0MP-38MIN CHRG. Shipping cost is undefined.Here is the posting visibly ![Vivo X80 PRO 12GB 512GB 5G 6.78" Phone Snapdragon 8 Gen 1 IP68 50.0MP-38MIN CHRG](https://i.ebayimg.com/thumbs/images/g/MbEAAOSwWPliausn/s-l225.jpg) to check out more postings here... ![Vivo X80 PRO 12GB 512GB 5G 6.78" Phone Snapdragon 8 Gen 1 IP68 50.0MP-38MIN CHRG](https://i.ebayimg.com/images/g/MbEAAOSwWPliausn/s-l640.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275292057835_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275292057835_3_0_1/225x225.jpg)'
 
       
 

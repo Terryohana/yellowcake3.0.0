@@ -4,7 +4,6 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/XukAAOSwExVhtF8S/s-l225.jpg
-      category: News
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -16,7 +15,7 @@
 ---
 $
 
-Live life with no regrets Original VIVO Y83 4G LTE Dual SIM 4GB RAM 64GB ROM Android Phone - a 1-star Cell Phones & Smartphones device.
+Live life with no regrets Original VIVO Y83 4G LTE Dual SIM 4GB RAM 64GB ROM Android Phone - a 3-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/144414745181?hash=item219fca225d%3Ag%3AXukAAOSwExVhtF8S&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Original VIVO Y83 4G LTE Dual SIM 4GB RAM 64GB ROM Android Phone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/XukAAOSwExVhtF8S/s-l225.jpg)and the additional images are![Original VIVO Y83 4G LTE Dual SIM 4GB RAM 64GB ROM Android Phone](https://i.ebayimg.com/images/g/XukAAOSwExVhtF8S/s-l960.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144414745181_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144414745181_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144414745181_4_0_1/225x225.jpg)
 
 

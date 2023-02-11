@@ -4,7 +4,6 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/m9gAAOSw3~dig4dP/s-l225.jpg'
-      category: News
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +15,7 @@
         
 ---
 $
-    User-endorsed, this Cell Phones & Smartphones device is available at a discounted price of 321.1518 after a 13% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/314000090575?hash=item491bdd25cf%3Ag%3Am9gAAOSw3%7Edig4dP&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo T1 Pro 5G (RAM 6GB, 128GB) 6.44" 64MP Camera Dual Sim Googleplay Store. The shipping cost is undefined.Product ImageVivo T1 Pro 5G (RAM 6GB, 128GB) 6.44" 64MP Camera Dual Sim Googleplay StoreAdditional ImagesVivo T1 Pro 5G (RAM 6GB, 128GB) 6.44" 64MP Camera Dual Sim Googleplay Store, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/314000090575_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_9_0_1/225x225.jpg)
+    Well-established brand, this Cell Phones & Smartphones device is available at a discounted price of 328.5346 after a 11% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/314000090575?hash=item491bdd25cf%3Ag%3Am9gAAOSw3%7Edig4dP&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo T1 Pro 5G (RAM 6GB, 128GB) 6.44" 64MP Camera Dual Sim Googleplay Store. The shipping cost is undefined.Product ImageVivo T1 Pro 5G (RAM 6GB, 128GB) 6.44" 64MP Camera Dual Sim Googleplay StoreAdditional ImagesVivo T1 Pro 5G (RAM 6GB, 128GB) 6.44" 64MP Camera Dual Sim Googleplay Store, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/314000090575_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314000090575_9_0_1/225x225.jpg)
     
     
 
