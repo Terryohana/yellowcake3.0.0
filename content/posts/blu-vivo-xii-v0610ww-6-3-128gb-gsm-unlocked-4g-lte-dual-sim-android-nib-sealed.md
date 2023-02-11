@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/COIAAOSwVvZjdsjg/s-l225.jpg'
-      category: News , Updates
+      category: News
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
         
 ---
 $
-    User-friendly design, this Cell Phones & Smartphones device is available at a discounted price of 128.14 after a 14% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/195478234351?hash=item2d836924ef%3Ag%3ACOIAAOSwVvZjdsjg&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the BLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual SIM Android NIB- Sealed. The shipping cost is undefined.Product ImageBLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual SIM Android NIB- SealedAdditional ImagesBLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual SIM Android NIB- Sealed, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195478234351_2_0_1/225x225.jpg)
+    Preferred by professionals, this Cell Phones & Smartphones device is available at a discounted price of 134.1 after a 10% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/195478234351?hash=item2d836924ef%3Ag%3ACOIAAOSwVvZjdsjg&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the BLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual SIM Android NIB- Sealed. The shipping cost is undefined.Product ImageBLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual SIM Android NIB- SealedAdditional ImagesBLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual SIM Android NIB- Sealed, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195478234351_2_0_1/225x225.jpg)
     
     
 

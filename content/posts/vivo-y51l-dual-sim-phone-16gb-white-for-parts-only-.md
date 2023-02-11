@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/NBkAAOSwtmBiO6Oz/s-l225.jpg'
-      category: News , Updates
+      category: News
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
         
 ---
 $
-    User-friendly design, this Cell Phones & Smartphones device is available at a discounted price of 17.991 after a 10% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/284721051080?hash=item424ab275c8%3Ag%3ANBkAAOSwtmBiO6Oz&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the VIVO Y51L DUAL SIM Phone 16GB WHITE !!!FOR PARTS ONLY!!!. The shipping cost is undefined.Product ImageVIVO Y51L DUAL SIM Phone 16GB WHITE !!!FOR PARTS ONLY!!!Additional ImagesVIVO Y51L DUAL SIM Phone 16GB WHITE !!!FOR PARTS ONLY!!!, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/284721051080_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284721051080_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284721051080_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284721051080_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284721051080_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284721051080_7_0_1/225x225.jpg)
+    High-performance product, this Cell Phones & Smartphones device is available at a discounted price of 17.391299999999998 after a 13% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/284721051080?hash=item424ab275c8%3Ag%3ANBkAAOSwtmBiO6Oz&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the VIVO Y51L DUAL SIM Phone 16GB WHITE !!!FOR PARTS ONLY!!!. The shipping cost is undefined.Product ImageVIVO Y51L DUAL SIM Phone 16GB WHITE !!!FOR PARTS ONLY!!!Additional ImagesVIVO Y51L DUAL SIM Phone 16GB WHITE !!!FOR PARTS ONLY!!!, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/284721051080_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284721051080_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284721051080_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284721051080_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284721051080_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284721051080_7_0_1/225x225.jpg)
     
     
 

@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/DIYAAOSwWRVj2syR/s-l225.jpg
-      category: News , Updates
+      category: News
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -16,7 +16,7 @@
 ---
 $
 
-Live life with no regrets BLU VIVO XL6 64GB Green Unlocked Excellent - a 4-star Cell Phones & Smartphones device.
+Be bold BLU VIVO XL6 64GB Green Unlocked Excellent - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/204231134746?hash=item2f8d1fce1a%3Ag%3ADIYAAOSwWRVj2syR&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the BLU VIVO XL6 64GB Green Unlocked Excellent. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/DIYAAOSwWRVj2syR/s-l225.jpg)and the additional images are![BLU VIVO XL6 64GB Green Unlocked Excellent](https://i.ebayimg.com/images/g/DIYAAOSwWRVj2syR/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/204231134746_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/204231134746_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/204231134746_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/204231134746_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/204231134746_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/204231134746_7_0_1/225x225.jpg)
 
 

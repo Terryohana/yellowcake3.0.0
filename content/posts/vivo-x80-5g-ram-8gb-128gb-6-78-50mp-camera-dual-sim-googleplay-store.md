@@ -3,23 +3,22 @@
       title: vivo x80 5g ram 8gb 128gb 6 78 50mp camera dual sim googleplay store
       status: Published
       date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/oiYAAOSwjJRi~fsr/s-l225.jpg
-      category: News , Updates
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/oiYAAOSwjJRi~fsr/s-l225.jpg'
+      category: News
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-      
+
         
 ---
 $
-
-Express yourself Vivo X80 5G (RAM 8GB, 128GB) 6.78" 50MP Camera Dual Sim Googleplay Store - a 4-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/314112103244?hash=item49228a534c%3Ag%3AoiYAAOSwjJRi%7Efsr&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Vivo X80 5G (RAM 8GB, 128GB) 6.78" 50MP Camera Dual Sim Googleplay Store. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/oiYAAOSwjJRi~fsr/s-l225.jpg)and the additional images are![Vivo X80 5G (RAM 8GB, 128GB) 6.78" 50MP Camera Dual Sim Googleplay Store](https://i.ebayimg.com/images/g/oiYAAOSwjJRi~fsr/s-l500.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/314112103244_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112103244_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112103244_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112103244_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112103244_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112103244_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112103244_8_0_1/225x225.jpg)
-
-
+    High-standard product, this Cell Phones & Smartphones device is available at a discounted price of 772.209 after a 10% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/314112103244?hash=item49228a534c%3Ag%3AoiYAAOSwjJRi%7Efsr&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo X80 5G (RAM 8GB, 128GB) 6.78" 50MP Camera Dual Sim Googleplay Store. The shipping cost is undefined.Product ImageVivo X80 5G (RAM 8GB, 128GB) 6.78" 50MP Camera Dual Sim Googleplay StoreAdditional ImagesVivo X80 5G (RAM 8GB, 128GB) 6.78" 50MP Camera Dual Sim Googleplay Store, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/314112103244_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112103244_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112103244_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112103244_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112103244_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112103244_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112103244_8_0_1/225x225.jpg)
+    
+    
 
  ## Technical Facts 
 
@@ -58,6 +57,8 @@ $[Click Here](https://www.ebay.com/itm/314112103244?hash=item49228a534c%3Ag%3Aoi
 
 
 
-
-
-
+    
+    
+    
+    
+    

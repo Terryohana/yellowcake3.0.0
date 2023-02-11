@@ -4,8 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/lzcAAOSwhx9icPGt/s-l225.jpg'
-      category: News , Updates
-
+      category: News
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -16,7 +15,7 @@
 
 ---
 $
-      Introducing th VIVO X80 Pro 5G 6.78" DualSIM 12/256GB 50MP GLOBAL VERSION 4700mAh PhoneByFedEx from a well-known brand.This Carriable device  is sure to be a Decorative-element in your home. [Click Here](https://www.ebay.com/itm/325196775768?hash=item4bb73d0158%3Ag%3AlzcAAOSwhx9icPGt&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the VIVO X80 Pro 5G 6.78" DualSIM 12/256GB 50MP GLOBAL VERSION 4700mAh PhoneByFedEx. Shipping cost is undefined.Here is the posting visibly ![VIVO X80 Pro 5G 6.78" DualSIM 12/256GB 50MP GLOBAL VERSION 4700mAh PhoneByFedEx](https://i.ebayimg.com/thumbs/images/g/lzcAAOSwhx9icPGt/s-l225.jpg) to check out more postings here... ![VIVO X80 Pro 5G 6.78" DualSIM 12/256GB 50MP GLOBAL VERSION 4700mAh PhoneByFedEx](https://i.ebayimg.com/images/g/lzcAAOSwhx9icPGt/s-l960.jpg), ![check vendor page]()'
+      Introducing th VIVO X80 Pro 5G 6.78" DualSIM 12/256GB 50MP GLOBAL VERSION 4700mAh PhoneByFedEx from a well-known brand.This Convenient size hand held device is sure to be a Gathering-place in your home. [Click Here](https://www.ebay.com/itm/325196775768?hash=item4bb73d0158%3Ag%3AlzcAAOSwhx9icPGt&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the VIVO X80 Pro 5G 6.78" DualSIM 12/256GB 50MP GLOBAL VERSION 4700mAh PhoneByFedEx. Shipping cost is undefined.Here is the posting visibly ![VIVO X80 Pro 5G 6.78" DualSIM 12/256GB 50MP GLOBAL VERSION 4700mAh PhoneByFedEx](https://i.ebayimg.com/thumbs/images/g/lzcAAOSwhx9icPGt/s-l225.jpg) to check out more postings here... ![VIVO X80 Pro 5G 6.78" DualSIM 12/256GB 50MP GLOBAL VERSION 4700mAh PhoneByFedEx](https://i.ebayimg.com/images/g/lzcAAOSwhx9icPGt/s-l960.jpg), ![check vendor page]()'
 
       
 
