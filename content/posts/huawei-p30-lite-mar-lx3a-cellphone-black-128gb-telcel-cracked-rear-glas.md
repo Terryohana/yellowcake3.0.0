@@ -1,9 +1,9 @@
 ---
       template: SinglePost
-      title: choose flip slider smart bar tablet cdma or gsm phone for parts only
+      title: huawei p30 lite mar lx3a cellphone black 128gb telcel cracked rear glas
       status: Published
       date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/9TEAAOSwSCxgdgs7/s-l225.jpg'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/zGoAAOSwWlFj2nqm/s-l225.jpg'
       categories: 
 
       excerpt: >-
@@ -16,7 +16,7 @@
         
 ---
 $
-    Innovative design, this Cell Phones & Smartphones device is available at a discounted price of 2.2176 after a 12% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/265076609178?hash=item3db7cc109a%3Ag%3A9TEAAOSwSCxgdgs7&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Choose Flip / Slider / Smart / Bar / Tablet / CDMA or GSM Phone.  For Parts Only. The shipping cost is undefined.Product ImageChoose Flip / Slider / Smart / Bar / Tablet / CDMA or GSM Phone.  For Parts OnlyAdditional ImagesChoose Flip / Slider / Smart / Bar / Tablet / CDMA or GSM Phone.  For Parts Only, check vendor page, ![check vendor page]()
+    Market leader, this Cell Phones & Smartphones device is available at a discounted price of 78.3 after a 13% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/175595488162?hash=item28e24e83a2%3Ag%3AzGoAAOSwWlFj2nqm&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Huawei P30 Lite MAR-LX3A Cellphone (Black 128GB) Telcel CRACKED REAR GLAS. The shipping cost is undefined.Product ImageHuawei P30 Lite MAR-LX3A Cellphone (Black 128GB) Telcel CRACKED REAR GLASAdditional ImagesHuawei P30 Lite MAR-LX3A Cellphone (Black 128GB) Telcel CRACKED REAR GLAS, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175595488162_2_0_1/225x225.jpg)
     
     
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 2.52 
+ - Listed Price- 90.00 
 
 
       
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 5351 
+ - Feedback score - 79162 
 
 
       
