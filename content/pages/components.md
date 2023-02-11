@@ -1,16 +1,14 @@
 ---
 template: ComponentsPage
 slug: components
-title: Components Page
+title: Categories Page
 featuredImage: https://ucarecdn.com/df0dc650-6938-412f-aefb-2019d2349e13/
-subtitle: This is the components page subtitle.
+subtitle: Find the phone you want here ....
 section1: >-
-  ## This is a container component
-
-  A sem vel nec sodales mi vivamus senectus sed potenti a parturient nascetur tincidunt nisi pulvinar rhoncus a. Risus imperdiet taciti suspendisse facilisi a per metus cubilia varius a nostra adipiscing amet ultrices quisque ac mi a.
+  ## This is where you can search for you phone by choosing your category
 
 
-  [Dictumst a ultrices mi]() a dignissim ad fermentum eget a nam et a blandit scelerisque. Taciti lorem tempor quam vestibulum dis habitasse vestibulum diam vel est ut proin dis auctor. Suscipit sceler isque orci magna interdum vel bibendum duis netus a consectetur dui magnis ac aliquet sem posuere tincidunt vestibulum.
+  Whether you're looking to buy a brand new phone or a refurbished model, Ebay-Cheap-Phones is the perfect destination for you. With its unbeatable prices, extensive product range, and commitment to customer satisfaction, this website is sure to exceed your expectations.
 section2: >-
   ## You can use videos, images and text.
 
@@ -20,14 +18,14 @@ video: https://ucarecdn.com/e6979298-66d6-4245-b496-6e5a5d507135/
 videoPoster: https://ucarecdn.com/69ba14a8-6481-4671-abb6-0e6f0d9c3e46/
 videoTitle: Also background videos, with poster image & title overlay.
 accordion:
-  - description: Taciti lorem tempor quam vestibulum dis habitasse
-    title: Taciti lorem
-  - description: Taciti lorem tempor quam vestibulum dis habitasse
-    title: Taciti lorem
-  - description: Taciti lorem tempor quam vestibulum dis habitasse
-    title: Taciti lorem
-  - description: Taciti lorem tempor quam vestibulum dis habitasse
-    title: Taciti lorem
+  - description: "Here is the apple phone place "
+    title: Apple
+  - description: "Here is the Samsung phone place "
+    title: Samsung
+  - description: "Here is the HTC phone place "
+    title: HTC
+  - description: "Here is the Oppo phone place "
+    title: Oppo
 gallery:
   - alt: yellow rope image
     image: https://ucarecdn.com/277cdf82-24aa-4d80-8169-bb46f4cd319d/
@@ -39,6 +37,6 @@ gallery:
     image: https://ucarecdn.com/83485d70-1552-4c97-b237-22330fb56a1e/
     title: Yellow Ice Cream
 meta:
-  description: This is a meta description.
-  title: Components Page
+  description: "This is the ebay cheap phone category page "
+  title: Category  Page
 ---
