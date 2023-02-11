@@ -4,6 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/clcAAOSw0ohi13eZ/s-l225.jpg
+      category: 'News'
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +16,7 @@
 ---
 $
 
-Be fashionable vivo iQOO 10 Pro 5G Phone Snapdragon 8+ Gen 1 6.78'' 8GB 256GB Dual SIM 50.0MP - a 2-star Cell Phones & Smartphones device.
+Live life with no regrets vivo iQOO 10 Pro 5G Phone Snapdragon 8+ Gen 1 6.78'' 8GB 256GB Dual SIM 50.0MP - a 1-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/225082301117?hash=item3467f35abd%3Ag%3AclcAAOSw0ohi13eZ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the vivo iQOO 10 Pro 5G Phone Snapdragon 8+ Gen 1 6.78'' 8GB 256GB Dual SIM 50.0MP. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/clcAAOSw0ohi13eZ/s-l225.jpg)and the additional images are![vivo iQOO 10 Pro 5G Phone Snapdragon 8+ Gen 1 6.78'' 8GB 256GB Dual SIM 50.0MP](https://i.ebayimg.com/images/g/clcAAOSw0ohi13eZ/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/225082301117_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225082301117_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225082301117_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225082301117_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225082301117_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225082301117_7_0_1/225x225.jpg)
 
 

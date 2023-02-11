@@ -4,6 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/BF4AAOSwG5Jjyrn2/s-l225.jpg
+      category: 'News'
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +16,7 @@
 ---
 $
 
-Be on trend BLU Vivo XL4 (G0350WW) 32GB (GSM Unlocked) Dual SIM Cracked Clean IMEI 61857 - a 2-star Cell Phones & Smartphones device.
+Seize the day BLU Vivo XL4 (G0350WW) 32GB (GSM Unlocked) Dual SIM Cracked Clean IMEI 61857 - a 1-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/134419144962?hash=item1f4c016102%3Ag%3ABF4AAOSwG5Jjyrn2&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the BLU Vivo XL4 (G0350WW) 32GB (GSM Unlocked) Dual SIM Cracked Clean IMEI 61857. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/BF4AAOSwG5Jjyrn2/s-l225.jpg)and the additional images are![BLU Vivo XL4 (G0350WW) 32GB (GSM Unlocked) Dual SIM Cracked Clean IMEI 61857](https://i.ebayimg.com/images/g/BF4AAOSwG5Jjyrn2/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134419144962_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134419144962_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134419144962_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134419144962_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134419144962_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134419144962_7_0_1/225x225.jpg)
 
 

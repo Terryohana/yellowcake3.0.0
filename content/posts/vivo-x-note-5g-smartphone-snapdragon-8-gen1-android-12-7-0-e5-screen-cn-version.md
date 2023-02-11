@@ -4,6 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/zjcAAOSw4KFifoBQ/s-l225.jpg
+      category: 'News'
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +16,7 @@
 ---
 $
 
-Be fearless Vivo X Note 5G SmartPhone Snapdragon 8 Gen1 Android 12 7.0" E5 Screen CN Version - a 2-star Cell Phones & Smartphones device.
+Stay up to date Vivo X Note 5G SmartPhone Snapdragon 8 Gen1 Android 12 7.0" E5 Screen CN Version - a 2-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/294982593516?hash=item44ae552bec%3Ag%3AzjcAAOSw4KFifoBQ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Vivo X Note 5G SmartPhone Snapdragon 8 Gen1 Android 12 7.0" E5 Screen CN Version. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/zjcAAOSw4KFifoBQ/s-l225.jpg)and the additional images are![Vivo X Note 5G SmartPhone Snapdragon 8 Gen1 Android 12 7.0" E5 Screen CN Version](https://i.ebayimg.com/images/g/zjcAAOSw4KFifoBQ/s-l960.jpg)![check vendor page]()
 
 

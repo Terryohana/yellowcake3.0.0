@@ -4,7 +4,8 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/XicAAOSweZVjNdC-/s-l225.jpg'
-      
+      category: 'News'
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +16,7 @@
 
 ---
 $
-      Introducing th Vivo X FOLD + Plus - 12GB/512GB 5G DUAL SC 6.53/8.03" Snapdragon 8 Gen1 50.0MP from a well-known brand.This Cordless smartphone is sure to be a Crowd-pleaser in your home. [Click Here](https://www.ebay.com/itm/275480382847?hash=item4023e90d7f%3Ag%3AXicAAOSweZVjNdC-&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo X FOLD + Plus - 12GB/512GB 5G DUAL SC 6.53/8.03" Snapdragon 8 Gen1 50.0MP. Shipping cost is undefined.Here is the posting visibly ![Vivo X FOLD + Plus - 12GB/512GB 5G DUAL SC 6.53/8.03" Snapdragon 8 Gen1 50.0MP](https://i.ebayimg.com/thumbs/images/g/XicAAOSweZVjNdC-/s-l225.jpg) to check out more postings here... ![Vivo X FOLD + Plus - 12GB/512GB 5G DUAL SC 6.53/8.03" Snapdragon 8 Gen1 50.0MP](https://i.ebayimg.com/images/g/XicAAOSweZVjNdC-/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275480382847_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275480382847_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275480382847_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275480382847_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275480382847_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275480382847_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275480382847_8_0_1/225x225.jpg)'
+      Introducing th Vivo X FOLD + Plus - 12GB/512GB 5G DUAL SC 6.53/8.03" Snapdragon 8 Gen1 50.0MP from a well-known brand.This Miniature device  is sure to be a Guest-of-honor in your home. [Click Here](https://www.ebay.com/itm/275480382847?hash=item4023e90d7f%3Ag%3AXicAAOSweZVjNdC-&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo X FOLD + Plus - 12GB/512GB 5G DUAL SC 6.53/8.03" Snapdragon 8 Gen1 50.0MP. Shipping cost is undefined.Here is the posting visibly ![Vivo X FOLD + Plus - 12GB/512GB 5G DUAL SC 6.53/8.03" Snapdragon 8 Gen1 50.0MP](https://i.ebayimg.com/thumbs/images/g/XicAAOSweZVjNdC-/s-l225.jpg) to check out more postings here... ![Vivo X FOLD + Plus - 12GB/512GB 5G DUAL SC 6.53/8.03" Snapdragon 8 Gen1 50.0MP](https://i.ebayimg.com/images/g/XicAAOSweZVjNdC-/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275480382847_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275480382847_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275480382847_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275480382847_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275480382847_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275480382847_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275480382847_8_0_1/225x225.jpg)'
 
       
 

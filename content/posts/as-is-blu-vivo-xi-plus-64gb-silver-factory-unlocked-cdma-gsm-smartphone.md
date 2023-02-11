@@ -4,7 +4,8 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/kt8AAOSwQediBWwo/s-l225.jpg'
-      
+      category: 'News'
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +16,7 @@
 
 ---
 $
-      Introducing th AS-IS BLU Vivo XI Plus - 64GB - Silver - Factory Unlocked (CDMA+GSM) -Smartphone from a well-known brand.This Convenient size hand held device is sure to be a Piece-de-resistance in your home. [Click Here](https://www.ebay.com/itm/284648131891?hash=item424659cd33%3Ag%3Akt8AAOSwQediBWwo&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the AS-IS BLU Vivo XI Plus - 64GB - Silver - Factory Unlocked (CDMA+GSM) -Smartphone. Shipping cost is undefined.Here is the posting visibly ![AS-IS BLU Vivo XI Plus - 64GB - Silver - Factory Unlocked (CDMA+GSM) -Smartphone](https://i.ebayimg.com/thumbs/images/g/kt8AAOSwQediBWwo/s-l225.jpg) to check out more postings here... ![AS-IS BLU Vivo XI Plus - 64GB - Silver - Factory Unlocked (CDMA+GSM) -Smartphone](https://i.ebayimg.com/images/g/kt8AAOSwQediBWwo/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/284648131891_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284648131891_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284648131891_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284648131891_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284648131891_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284648131891_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284648131891_8_0_1/225x225.jpg)'
+      Introducing th AS-IS BLU Vivo XI Plus - 64GB - Silver - Factory Unlocked (CDMA+GSM) -Smartphone from a well-known brand.This Holdable device  is sure to be a Main-event in your home. [Click Here](https://www.ebay.com/itm/284648131891?hash=item424659cd33%3Ag%3Akt8AAOSwQediBWwo&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the AS-IS BLU Vivo XI Plus - 64GB - Silver - Factory Unlocked (CDMA+GSM) -Smartphone. Shipping cost is undefined.Here is the posting visibly ![AS-IS BLU Vivo XI Plus - 64GB - Silver - Factory Unlocked (CDMA+GSM) -Smartphone](https://i.ebayimg.com/thumbs/images/g/kt8AAOSwQediBWwo/s-l225.jpg) to check out more postings here... ![AS-IS BLU Vivo XI Plus - 64GB - Silver - Factory Unlocked (CDMA+GSM) -Smartphone](https://i.ebayimg.com/images/g/kt8AAOSwQediBWwo/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/284648131891_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284648131891_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284648131891_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284648131891_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284648131891_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284648131891_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/284648131891_8_0_1/225x225.jpg)'
 
       
 

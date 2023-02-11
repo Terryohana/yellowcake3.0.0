@@ -4,6 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/1KEAAOSwKbFiXqyQ/s-l225.jpg'
+      category: 'News'
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -15,7 +16,7 @@
         
 ---
 $
-    Exceptional performance, this Cell Phones & Smartphones device is available at a discounted price of 957.8613 after a 13% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/165440698828?hash=item268508b9cc%3Ag%3A1KEAAOSwKbFiXqyQ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo X Note 7.0 Inch Smartphone Android 12 Snapdragon 8 Gen 1 Octa Core GPS NFC. The shipping cost is undefined.Product ImageVivo X Note 7.0 Inch Smartphone Android 12 Snapdragon 8 Gen 1 Octa Core GPS NFCAdditional ImagesVivo X Note 7.0 Inch Smartphone Android 12 Snapdragon 8 Gen 1 Octa Core GPS NFC, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165440698828_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_10_0_1/225x225.jpg)
+    Trusted name, this Cell Phones & Smartphones device is available at a discounted price of 968.8712 after a 12% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/165440698828?hash=item268508b9cc%3Ag%3A1KEAAOSwKbFiXqyQ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo X Note 7.0 Inch Smartphone Android 12 Snapdragon 8 Gen 1 Octa Core GPS NFC. The shipping cost is undefined.Product ImageVivo X Note 7.0 Inch Smartphone Android 12 Snapdragon 8 Gen 1 Octa Core GPS NFCAdditional ImagesVivo X Note 7.0 Inch Smartphone Android 12 Snapdragon 8 Gen 1 Octa Core GPS NFC, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165440698828_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165440698828_10_0_1/225x225.jpg)
     
     
 

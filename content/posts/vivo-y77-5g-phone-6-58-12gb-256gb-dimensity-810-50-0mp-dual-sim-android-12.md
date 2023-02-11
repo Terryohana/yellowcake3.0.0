@@ -3,8 +3,8 @@
       title: vivo y77 5g phone 6 58 12gb 256gb dimensity 810 50 0mp dual sim android 12
       status: Published
       date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/q4MAAOSwg5pjkU9w/s-l225.jpg'
-      
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/q4MAAOSwg5pjkU9w/s-l225.jpg
+      category: 'News'
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -12,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th vivo Y77 5G Phone 6.58'' 12GB 256GB Dimensity 810 50.0MP Dual SIM Android 12 from a well-known brand.This Portable smartphone is sure to be a Guest-of-honor in your home. [Click Here](https://www.ebay.com/itm/325454679268?hash=item4bc69c4ce4%3Ag%3Aq4MAAOSwg5pjkU9w&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the vivo Y77 5G Phone 6.58'' 12GB 256GB Dimensity 810 50.0MP Dual SIM Android 12. Shipping cost is undefined.Here is the posting visibly ![vivo Y77 5G Phone 6.58'' 12GB 256GB Dimensity 810 50.0MP Dual SIM Android 12](https://i.ebayimg.com/thumbs/images/g/q4MAAOSwg5pjkU9w/s-l225.jpg) to check out more postings here... ![vivo Y77 5G Phone 6.58'' 12GB 256GB Dimensity 810 50.0MP Dual SIM Android 12](https://i.ebayimg.com/images/g/q4MAAOSwg5pjkU9w/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325454679268_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325454679268_3_0_1/225x225.jpg)'
 
-      
+Stay ahead of the game vivo Y77 5G Phone 6.58'' 12GB 256GB Dimensity 810 50.0MP Dual SIM Android 12 - a 1-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/325454679268?hash=item4bc69c4ce4%3Ag%3Aq4MAAOSwg5pjkU9w&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the vivo Y77 5G Phone 6.58'' 12GB 256GB Dimensity 810 50.0MP Dual SIM Android 12. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/q4MAAOSwg5pjkU9w/s-l225.jpg)and the additional images are![vivo Y77 5G Phone 6.58'' 12GB 256GB Dimensity 810 50.0MP Dual SIM Android 12](https://i.ebayimg.com/images/g/q4MAAOSwg5pjkU9w/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325454679268_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325454679268_3_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -57,4 +59,5 @@ $
 
 
 
-      -
+
+

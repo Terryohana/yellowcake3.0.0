@@ -3,21 +3,23 @@
       title: new vivo x80 pro 5g ram 12gb 256gb 6 78 50 48mp camera googleplay store
       status: Published
       date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/7pYAAOSwfGpi~fln/s-l225.jpg'
-
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/7pYAAOSwfGpi~fln/s-l225.jpg
+      category: 'News'
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-
+      
         
 ---
 $
-    Best-seller, this Cell Phones & Smartphones device is available at a discounted price of 1071.8576 after a 12% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/314112093682?hash=item49228a2df2%3Ag%3A7pYAAOSwfGpi%7Efln&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the NEW Vivo X80 Pro 5G (RAM 12GB, 256GB) 6.78 50+48MP Camera Googleplay Store. The shipping cost is undefined.Product ImageNEW Vivo X80 Pro 5G (RAM 12GB, 256GB) 6.78 50+48MP Camera Googleplay StoreAdditional ImagesNEW Vivo X80 Pro 5G (RAM 12GB, 256GB) 6.78 50+48MP Camera Googleplay Store, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/314112093682_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112093682_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112093682_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112093682_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112093682_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112093682_7_0_1/225x225.jpg)
-    
-    
+
+Make your mark NEW Vivo X80 Pro 5G (RAM 12GB, 256GB) 6.78 50+48MP Camera Googleplay Store - a 4-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/314112093682?hash=item49228a2df2%3Ag%3A7pYAAOSwfGpi%7Efln&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the NEW Vivo X80 Pro 5G (RAM 12GB, 256GB) 6.78 50+48MP Camera Googleplay Store. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/7pYAAOSwfGpi~fln/s-l225.jpg)and the additional images are![NEW Vivo X80 Pro 5G (RAM 12GB, 256GB) 6.78 50+48MP Camera Googleplay Store](https://i.ebayimg.com/images/g/7pYAAOSwfGpi~fln/s-l500.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/314112093682_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112093682_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112093682_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112093682_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112093682_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/314112093682_7_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -56,8 +58,6 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+
+

@@ -4,6 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/UKcAAOSwnGRi6wRv/s-l225.jpg'
+      category: 'News'
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -15,7 +16,7 @@
         
 ---
 $
-    Featured in media, this Cell Phones & Smartphones device is available at a discounted price of 41.36 after a 12% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/185524196793?hash=item2b321a95b9%3Ag%3AUKcAAOSwnGRi6wRv&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the BLU Vivo S Android 5.2" HD 16GB LTE, Grey . The shipping cost is undefined.Product ImageBLU Vivo S Android 5.2" HD 16GB LTE, Grey Additional ImagesBLU Vivo S Android 5.2" HD 16GB LTE, Grey , check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185524196793_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185524196793_3_0_1/225x225.jpg)
+    Widely accepted, this Cell Phones & Smartphones device is available at a discounted price of 40.89 after a 13% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/185524196793?hash=item2b321a95b9%3Ag%3AUKcAAOSwnGRi6wRv&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the BLU Vivo S Android 5.2" HD 16GB LTE, Grey . The shipping cost is undefined.Product ImageBLU Vivo S Android 5.2" HD 16GB LTE, Grey Additional ImagesBLU Vivo S Android 5.2" HD 16GB LTE, Grey , check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185524196793_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185524196793_3_0_1/225x225.jpg)
     
     
 

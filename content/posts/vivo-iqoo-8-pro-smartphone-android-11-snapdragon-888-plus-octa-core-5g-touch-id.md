@@ -4,7 +4,8 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/OKYAAOSw8YZhLEa~/s-l225.jpg'
-      
+      category: 'News'
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +16,7 @@
 
 ---
 $
-      Introducing th Vivo iQOO 8 Pro Smartphone Android 11 Snapdragon 888 Plus Octa Core 5G Touch ID from a well-known brand.This Holdable smartphone is sure to be a Design-piece in your home. [Click Here](https://www.ebay.com/itm/154589911267?hash=item23fe46d8e3%3Ag%3AOKYAAOSw8YZhLEa%7E&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo iQOO 8 Pro Smartphone Android 11 Snapdragon 888 Plus Octa Core 5G Touch ID. Shipping cost is undefined.Here is the posting visibly ![Vivo iQOO 8 Pro Smartphone Android 11 Snapdragon 888 Plus Octa Core 5G Touch ID](https://i.ebayimg.com/thumbs/images/g/OKYAAOSw8YZhLEa~/s-l225.jpg) to check out more postings here... ![Vivo iQOO 8 Pro Smartphone Android 11 Snapdragon 888 Plus Octa Core 5G Touch ID](https://i.ebayimg.com/images/g/OKYAAOSw8YZhLEa~/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/154589911267_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154589911267_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154589911267_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154589911267_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154589911267_6_0_1/225x225.jpg)'
+      Introducing th Vivo iQOO 8 Pro Smartphone Android 11 Snapdragon 888 Plus Octa Core 5G Touch ID from a well-known brand.This Portable hand held device is sure to be a Decorative-showcase. in your home. [Click Here](https://www.ebay.com/itm/154589911267?hash=item23fe46d8e3%3Ag%3AOKYAAOSw8YZhLEa%7E&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo iQOO 8 Pro Smartphone Android 11 Snapdragon 888 Plus Octa Core 5G Touch ID. Shipping cost is undefined.Here is the posting visibly ![Vivo iQOO 8 Pro Smartphone Android 11 Snapdragon 888 Plus Octa Core 5G Touch ID](https://i.ebayimg.com/thumbs/images/g/OKYAAOSw8YZhLEa~/s-l225.jpg) to check out more postings here... ![Vivo iQOO 8 Pro Smartphone Android 11 Snapdragon 888 Plus Octa Core 5G Touch ID](https://i.ebayimg.com/images/g/OKYAAOSw8YZhLEa~/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/154589911267_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154589911267_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154589911267_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154589911267_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154589911267_6_0_1/225x225.jpg)'
 
       
 

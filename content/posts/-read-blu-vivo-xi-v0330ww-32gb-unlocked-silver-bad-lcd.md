@@ -4,6 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/jPMAAOSwZu9fTCWb/s-l225.jpg
+      category: 'News'
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +16,7 @@
 ---
 $
 
-Live life with no regrets "READ"Blu Vivo XI V0330WW 32GB Unlocked Silver BAD LCD - a 3-star Cell Phones & Smartphones device.
+Express yourself "READ"Blu Vivo XI V0330WW 32GB Unlocked Silver BAD LCD - a 2-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/124318658995?hash=item1cf1f831b3%3Ag%3AjPMAAOSwZu9fTCWb&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the "READ"Blu Vivo XI V0330WW 32GB Unlocked Silver BAD LCD. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/jPMAAOSwZu9fTCWb/s-l225.jpg)and the additional images are!["READ"Blu Vivo XI V0330WW 32GB Unlocked Silver BAD LCD](https://i.ebayimg.com/images/g/jPMAAOSwZu9fTCWb/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/124318658995_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124318658995_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124318658995_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124318658995_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124318658995_6_0_1/225x225.jpg)
 
 

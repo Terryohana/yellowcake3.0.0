@@ -4,7 +4,8 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/Zs4AAOSwimBjf35a/s-l225.jpg'
-      
+      category: 'News'
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -15,7 +16,7 @@
 
 ---
 $
-      Introducing th VIVO X90 Pro+  6.78" 12GB/512GB 5G Snapdragon 8 Gen 2  from a well-known brand.This Convenient hand held device is sure to be a Decorative-display in your home. [Click Here](https://www.ebay.com/itm/155276764264?hash=item2427376468%3Ag%3AZs4AAOSwimBjf35a&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the VIVO X90 Pro+  6.78" 12GB/512GB 5G Snapdragon 8 Gen 2 . Shipping cost is undefined.Here is the posting visibly ![VIVO X90 Pro+  6.78" 12GB/512GB 5G Snapdragon 8 Gen 2 ](https://i.ebayimg.com/thumbs/images/g/Zs4AAOSwimBjf35a/s-l225.jpg) to check out more postings here... ![VIVO X90 Pro+  6.78" 12GB/512GB 5G Snapdragon 8 Gen 2 ](https://i.ebayimg.com/images/g/Zs4AAOSwimBjf35a/s-l640.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/155276764264_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155276764264_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155276764264_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155276764264_5_0_1/225x225.jpg)'
+      Introducing th VIVO X90 Pro+  6.78" 12GB/512GB 5G Snapdragon 8 Gen 2  from a well-known brand.This On-the-go hand held device is sure to be a Conversation-starter in your home. [Click Here](https://www.ebay.com/itm/155276764264?hash=item2427376468%3Ag%3AZs4AAOSwimBjf35a&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the VIVO X90 Pro+  6.78" 12GB/512GB 5G Snapdragon 8 Gen 2 . Shipping cost is undefined.Here is the posting visibly ![VIVO X90 Pro+  6.78" 12GB/512GB 5G Snapdragon 8 Gen 2 ](https://i.ebayimg.com/thumbs/images/g/Zs4AAOSwimBjf35a/s-l225.jpg) to check out more postings here... ![VIVO X90 Pro+  6.78" 12GB/512GB 5G Snapdragon 8 Gen 2 ](https://i.ebayimg.com/images/g/Zs4AAOSwimBjf35a/s-l640.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/155276764264_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155276764264_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155276764264_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155276764264_5_0_1/225x225.jpg)'
 
       
 
