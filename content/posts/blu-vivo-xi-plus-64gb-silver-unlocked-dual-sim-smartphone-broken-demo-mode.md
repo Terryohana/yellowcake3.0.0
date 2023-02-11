@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/~sEAAOSwztBjmTU~/s-l225.jpg'
-      category: 'News'
+      categories: 'News'
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th BLU Vivo XI Plus 64GB - Silver (Unlocked) Dual SIM Smartphone *Broken Demo Mode from a well-known brand.This Mobile hand held device is sure to be a Artistic-statement in your home. [Click Here](https://www.ebay.com/itm/325462289119?hash=item4bc7106adf%3Ag%3A%7EsEAAOSwztBjmTU%7E&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the BLU Vivo XI Plus 64GB - Silver (Unlocked) Dual SIM Smartphone *Broken Demo Mode. Shipping cost is undefined.Here is the posting visibly ![BLU Vivo XI Plus 64GB - Silver (Unlocked) Dual SIM Smartphone *Broken Demo Mode](https://i.ebayimg.com/thumbs/images/g/~sEAAOSwztBjmTU~/s-l225.jpg) to check out more postings here... ![BLU Vivo XI Plus 64GB - Silver (Unlocked) Dual SIM Smartphone *Broken Demo Mode](https://i.ebayimg.com/images/g/~sEAAOSwztBjmTU~/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325462289119_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325462289119_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325462289119_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325462289119_5_0_1/225x225.jpg)'
+      Introducing th BLU Vivo XI Plus 64GB - Silver (Unlocked) Dual SIM Smartphone *Broken Demo Mode from a well-known brand.This Man-portable smartphone is sure to be a Decorative-element in your home. [Click Here](https://www.ebay.com/itm/325462289119?hash=item4bc7106adf%3Ag%3A%7EsEAAOSwztBjmTU%7E&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the BLU Vivo XI Plus 64GB - Silver (Unlocked) Dual SIM Smartphone *Broken Demo Mode. Shipping cost is undefined.Here is the posting visibly ![BLU Vivo XI Plus 64GB - Silver (Unlocked) Dual SIM Smartphone *Broken Demo Mode](https://i.ebayimg.com/thumbs/images/g/~sEAAOSwztBjmTU~/s-l225.jpg) to check out more postings here... ![BLU Vivo XI Plus 64GB - Silver (Unlocked) Dual SIM Smartphone *Broken Demo Mode](https://i.ebayimg.com/images/g/~sEAAOSwztBjmTU~/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325462289119_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325462289119_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325462289119_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325462289119_5_0_1/225x225.jpg)'
 
       
 

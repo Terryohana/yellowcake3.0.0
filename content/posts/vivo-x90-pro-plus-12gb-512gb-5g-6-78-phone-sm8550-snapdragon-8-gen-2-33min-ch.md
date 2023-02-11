@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/500AAOSw26VjfmpV/s-l225.jpg'
-      category: 'News'
+      categories: 'News'
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
         
 ---
 $
-    Reliable brand, this Cell Phones & Smartphones device is available at a discounted price of 1484.955 after a 10% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/275551875397?hash=item40282bf145%3Ag%3A500AAOSw26VjfmpV&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo X90 PRO Plus 12GB 512GB 5G 6.78" Phone SM8550 Snapdragon 8 Gen 2 - 33MIN CH. The shipping cost is undefined.Product ImageVivo X90 PRO Plus 12GB 512GB 5G 6.78" Phone SM8550 Snapdragon 8 Gen 2 - 33MIN CHAdditional ImagesVivo X90 PRO Plus 12GB 512GB 5G 6.78" Phone SM8550 Snapdragon 8 Gen 2 - 33MIN CH, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275551875397_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275551875397_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275551875397_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275551875397_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275551875397_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275551875397_7_0_1/225x225.jpg)
+    Most popular choice, this Cell Phones & Smartphones device is available at a discounted price of 1418.957 after a 14% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/275551875397?hash=item40282bf145%3Ag%3A500AAOSw26VjfmpV&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo X90 PRO Plus 12GB 512GB 5G 6.78" Phone SM8550 Snapdragon 8 Gen 2 - 33MIN CH. The shipping cost is undefined.Product ImageVivo X90 PRO Plus 12GB 512GB 5G 6.78" Phone SM8550 Snapdragon 8 Gen 2 - 33MIN CHAdditional ImagesVivo X90 PRO Plus 12GB 512GB 5G 6.78" Phone SM8550 Snapdragon 8 Gen 2 - 33MIN CH, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275551875397_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275551875397_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275551875397_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275551875397_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275551875397_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275551875397_7_0_1/225x225.jpg)
     
     
 

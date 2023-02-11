@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/WE4AAOSwYj1i6sFs/s-l225.jpg'
-      category: 'News'
+      categories: 'News'
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th BLU Vivo Go V0390WW 6.0" GSM Unlocked Smartphone 16GB Dual Sim Android from a well-known brand.This Man-portable smartphone is sure to be a Artistic-statement in your home. [Click Here](https://www.ebay.com/itm/265811704944?hash=item3de39cbc70%3Ag%3AWE4AAOSwYj1i6sFs&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the BLU Vivo Go V0390WW 6.0" GSM Unlocked Smartphone 16GB Dual Sim Android. Shipping cost is undefined.Here is the posting visibly ![BLU Vivo Go V0390WW 6.0" GSM Unlocked Smartphone 16GB Dual Sim Android](https://i.ebayimg.com/thumbs/images/g/WE4AAOSwYj1i6sFs/s-l225.jpg) to check out more postings here... ![BLU Vivo Go V0390WW 6.0" GSM Unlocked Smartphone 16GB Dual Sim Android](https://i.ebayimg.com/images/g/WE4AAOSwYj1i6sFs/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/265811704944_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265811704944_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265811704944_4_0_1/225x225.jpg)'
+      Introducing th BLU Vivo Go V0390WW 6.0" GSM Unlocked Smartphone 16GB Dual Sim Android from a well-known brand.This handheld smartphone is sure to be a Gathering-spot in your home. [Click Here](https://www.ebay.com/itm/265811704944?hash=item3de39cbc70%3Ag%3AWE4AAOSwYj1i6sFs&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the BLU Vivo Go V0390WW 6.0" GSM Unlocked Smartphone 16GB Dual Sim Android. Shipping cost is undefined.Here is the posting visibly ![BLU Vivo Go V0390WW 6.0" GSM Unlocked Smartphone 16GB Dual Sim Android](https://i.ebayimg.com/thumbs/images/g/WE4AAOSwYj1i6sFs/s-l225.jpg) to check out more postings here... ![BLU Vivo Go V0390WW 6.0" GSM Unlocked Smartphone 16GB Dual Sim Android](https://i.ebayimg.com/images/g/WE4AAOSwYj1i6sFs/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/265811704944_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265811704944_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265811704944_4_0_1/225x225.jpg)'
 
       
 

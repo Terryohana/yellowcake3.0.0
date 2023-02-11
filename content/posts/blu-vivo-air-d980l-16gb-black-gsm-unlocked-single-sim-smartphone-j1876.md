@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/YDkAAOSwJOVijo6P/s-l225.jpg
-      category: 'News'
+      categories: 'News'
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -16,7 +16,7 @@
 ---
 $
 
-Be bold BLU VIVO AIR (D980L) 16GB - Black (GSM Unlocked) Single SIM Smartphone - J1876 - a 5-star Cell Phones & Smartphones device.
+Be fearless BLU VIVO AIR (D980L) 16GB - Black (GSM Unlocked) Single SIM Smartphone - J1876 - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/134352018574?hash=item1f48011c8e%3Ag%3AYDkAAOSwJOVijo6P&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the BLU VIVO AIR (D980L) 16GB - Black (GSM Unlocked) Single SIM Smartphone - J1876. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/YDkAAOSwJOVijo6P/s-l225.jpg)and the additional images are![BLU VIVO AIR (D980L) 16GB - Black (GSM Unlocked) Single SIM Smartphone - J1876](https://i.ebayimg.com/images/g/YDkAAOSwJOVijo6P/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134352018574_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134352018574_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134352018574_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134352018574_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134352018574_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134352018574_7_0_1/225x225.jpg)
 
 

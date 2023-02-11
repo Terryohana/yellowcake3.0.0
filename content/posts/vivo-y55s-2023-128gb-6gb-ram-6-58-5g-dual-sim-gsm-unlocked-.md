@@ -3,8 +3,9 @@
       title: vivo y55s 2023 128gb 6gb ram 6 58 5g dual sim gsm unlocked 
       status: Published
       date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/ZToAAOSwxVtj3iN3/s-l225.jpg
-      category: 'News'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/ZToAAOSwxVtj3iN3/s-l225.jpg'
+      categories: 'News'
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -12,14 +13,12 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-        
+
 ---
 $
+      Introducing th VIVO Y55s 2023 128GB 6GB RAM 6.58" 5G DUAL SIM (GSM UNLOCKED) from a well-known brand.This On-the-go hand held device is sure to be a Talking-point in your home. [Click Here](https://www.ebay.com/itm/255961959977?hash=item3b98858e29%3Ag%3AZToAAOSwxVtj3iN3&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the VIVO Y55s 2023 128GB 6GB RAM 6.58" 5G DUAL SIM (GSM UNLOCKED). Shipping cost is undefined.Here is the posting visibly ![VIVO Y55s 2023 128GB 6GB RAM 6.58" 5G DUAL SIM (GSM UNLOCKED)](https://i.ebayimg.com/thumbs/images/g/ZToAAOSwxVtj3iN3/s-l225.jpg) to check out more postings here... ![VIVO Y55s 2023 128GB 6GB RAM 6.58" 5G DUAL SIM (GSM UNLOCKED)](https://i.ebayimg.com/images/g/ZToAAOSwxVtj3iN3/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255961959977_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255961959977_3_0_1/225x225.jpg)'
 
-Be confident VIVO Y55s 2023 128GB 6GB RAM 6.58" 5G DUAL SIM (GSM UNLOCKED) - a 4-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/255961959977?hash=item3b98858e29%3Ag%3AZToAAOSwxVtj3iN3&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the VIVO Y55s 2023 128GB 6GB RAM 6.58" 5G DUAL SIM (GSM UNLOCKED). Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/ZToAAOSwxVtj3iN3/s-l225.jpg)and the additional images are![VIVO Y55s 2023 128GB 6GB RAM 6.58" 5G DUAL SIM (GSM UNLOCKED)](https://i.ebayimg.com/images/g/ZToAAOSwxVtj3iN3/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255961959977_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255961959977_3_0_1/225x225.jpg)
-
-
+      
 
  ## Technical Facts 
 
@@ -59,5 +58,4 @@ $[Click Here](https://www.ebay.com/itm/255961959977?hash=item3b98858e29%3Ag%3AZT
 
 
 
-
-
+      -

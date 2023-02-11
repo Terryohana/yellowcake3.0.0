@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/hQ4AAOSwA7hjjkv9/s-l225.jpg'
-      category: 'News'
+      categories: 'News'
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
         
 ---
 $
-    Well-established brand, this Cell Phones & Smartphones device is available at a discounted price of 62.29109999999999 after a 11% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/144841795310?hash=item21b93e66ee%3Ag%3AhQ4AAOSwA7hjjkv9&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the BLU VIVO XI+ (V0310WW) 64GB - Black (GSM Unlocked) Dual SIM Smartphone - J6805. The shipping cost is undefined.Product ImageBLU VIVO XI+ (V0310WW) 64GB - Black (GSM Unlocked) Dual SIM Smartphone - J6805Additional ImagesBLU VIVO XI+ (V0310WW) 64GB - Black (GSM Unlocked) Dual SIM Smartphone - J6805, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144841795310_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_10_0_1/225x225.jpg)
+    Preferred by professionals, this Cell Phones & Smartphones device is available at a discounted price of 62.29109999999999 after a 11% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/144841795310?hash=item21b93e66ee%3Ag%3AhQ4AAOSwA7hjjkv9&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the BLU VIVO XI+ (V0310WW) 64GB - Black (GSM Unlocked) Dual SIM Smartphone - J6805. The shipping cost is undefined.Product ImageBLU VIVO XI+ (V0310WW) 64GB - Black (GSM Unlocked) Dual SIM Smartphone - J6805Additional ImagesBLU VIVO XI+ (V0310WW) 64GB - Black (GSM Unlocked) Dual SIM Smartphone - J6805, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144841795310_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144841795310_10_0_1/225x225.jpg)
     
     
 

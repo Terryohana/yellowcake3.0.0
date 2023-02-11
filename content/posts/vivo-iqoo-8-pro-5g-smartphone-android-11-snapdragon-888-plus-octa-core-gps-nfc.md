@@ -3,8 +3,9 @@
       title: vivo iqoo 8 pro 5g smartphone android 11 snapdragon 888 plus octa core gps nfc
       status: Published
       date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/KVkAAOSwXBZhLEa8/s-l225.jpg
-      category: 'News'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/KVkAAOSwXBZhLEa8/s-l225.jpg'
+      categories: 'News'
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -12,14 +13,12 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-        
+
 ---
 $
+      Introducing th Vivo iQOO 8 Pro 5G Smartphone Android 11 Snapdragon 888 Plus Octa Core GPS NFC from a well-known brand.This Mobile smartphone is sure to be a Discussion--starter in your home. [Click Here](https://www.ebay.com/itm/174915132341?hash=item28b9c11bb5%3Ag%3AKVkAAOSwXBZhLEa8&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo iQOO 8 Pro 5G Smartphone Android 11 Snapdragon 888 Plus Octa Core GPS NFC. Shipping cost is undefined.Here is the posting visibly ![Vivo iQOO 8 Pro 5G Smartphone Android 11 Snapdragon 888 Plus Octa Core GPS NFC](https://i.ebayimg.com/thumbs/images/g/KVkAAOSwXBZhLEa8/s-l225.jpg) to check out more postings here... ![Vivo iQOO 8 Pro 5G Smartphone Android 11 Snapdragon 888 Plus Octa Core GPS NFC](https://i.ebayimg.com/images/g/KVkAAOSwXBZhLEa8/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/174915132341_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/174915132341_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/174915132341_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/174915132341_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/174915132341_6_0_1/225x225.jpg)'
 
-Stay informed Vivo iQOO 8 Pro 5G Smartphone Android 11 Snapdragon 888 Plus Octa Core GPS NFC - a 1-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/174915132341?hash=item28b9c11bb5%3Ag%3AKVkAAOSwXBZhLEa8&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Vivo iQOO 8 Pro 5G Smartphone Android 11 Snapdragon 888 Plus Octa Core GPS NFC. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/KVkAAOSwXBZhLEa8/s-l225.jpg)and the additional images are![Vivo iQOO 8 Pro 5G Smartphone Android 11 Snapdragon 888 Plus Octa Core GPS NFC](https://i.ebayimg.com/images/g/KVkAAOSwXBZhLEa8/s-l960.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/174915132341_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/174915132341_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/174915132341_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/174915132341_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/174915132341_6_0_1/225x225.jpg)
-
-
+      
 
  ## Technical Facts 
 
@@ -59,5 +58,4 @@ $[Click Here](https://www.ebay.com/itm/174915132341?hash=item28b9c11bb5%3Ag%3AKV
 
 
 
-
-
+      -

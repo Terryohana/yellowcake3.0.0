@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/u4cAAOSwO89jlLAg/s-l225.jpg'
-      category: 'News'
+      categories: 'News'
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th vivo X90 Pro+ Plus V2227A 12+512GB Red 64MP IP68 Dual SIM 5G Android Smartphone from a well-known brand.This Lightweight hand held device is sure to be a Showpiece in your home. [Click Here](https://www.ebay.com/itm/115634548700?hash=item1aec5b2fdc%3Ag%3Au4cAAOSwO89jlLAg&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the vivo X90 Pro+ Plus V2227A 12+512GB Red 64MP IP68 Dual SIM 5G Android Smartphone. Shipping cost is undefined.Here is the posting visibly ![vivo X90 Pro+ Plus V2227A 12+512GB Red 64MP IP68 Dual SIM 5G Android Smartphone](https://i.ebayimg.com/thumbs/images/g/u4cAAOSwO89jlLAg/s-l225.jpg) to check out more postings here... ![vivo X90 Pro+ Plus V2227A 12+512GB Red 64MP IP68 Dual SIM 5G Android Smartphone](https://i.ebayimg.com/images/g/u4cAAOSwO89jlLAg/s-l640.jpg), ![check vendor page]()'
+      Introducing th vivo X90 Pro+ Plus V2227A 12+512GB Red 64MP IP68 Dual SIM 5G Android Smartphone from a well-known brand.This Convenient size device  is sure to be a Center-of-interest in your home. [Click Here](https://www.ebay.com/itm/115634548700?hash=item1aec5b2fdc%3Ag%3Au4cAAOSwO89jlLAg&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the vivo X90 Pro+ Plus V2227A 12+512GB Red 64MP IP68 Dual SIM 5G Android Smartphone. Shipping cost is undefined.Here is the posting visibly ![vivo X90 Pro+ Plus V2227A 12+512GB Red 64MP IP68 Dual SIM 5G Android Smartphone](https://i.ebayimg.com/thumbs/images/g/u4cAAOSwO89jlLAg/s-l225.jpg) to check out more postings here... ![vivo X90 Pro+ Plus V2227A 12+512GB Red 64MP IP68 Dual SIM 5G Android Smartphone](https://i.ebayimg.com/images/g/u4cAAOSwO89jlLAg/s-l640.jpg), ![check vendor page]()'
 
       
 

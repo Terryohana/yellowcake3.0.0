@@ -3,9 +3,8 @@
       title: vivo x50 pro 256gb 8gb ram v2006 factory unlocked 6 56 48mp global 
       status: Published
       date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/HiYAAOSwUS1jUbzX/s-l225.jpg'
-      category: 'News'
-
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/HiYAAOSwUS1jUbzX/s-l225.jpg
+      categories: 'News'
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -13,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th Vivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global) from a well-known brand.This Compact size hand held device is sure to be a Center of attention  in your home. [Click Here](https://www.ebay.com/itm/195425193183?hash=item2d803fccdf%3Ag%3AHiYAAOSwUS1jUbzX&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global). Shipping cost is undefined.Here is the posting visibly ![Vivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global)](https://i.ebayimg.com/thumbs/images/g/HiYAAOSwUS1jUbzX/s-l225.jpg) to check out more postings here... ![Vivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global)](https://i.ebayimg.com/images/g/HiYAAOSwUS1jUbzX/s-l640.jpg), ![check vendor page]()'
 
-      
+Be unapologetically you Vivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global) - a 4-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/195425193183?hash=item2d803fccdf%3Ag%3AHiYAAOSwUS1jUbzX&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Vivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global). Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/HiYAAOSwUS1jUbzX/s-l225.jpg)and the additional images are![Vivo X50 Pro 256GB 8GB RAM V2006 (FACTORY UNLOCKED) 6.56" 48MP (Global)](https://i.ebayimg.com/images/g/HiYAAOSwUS1jUbzX/s-l640.jpg)![check vendor page]()
+
+
 
  ## Technical Facts 
 
@@ -58,4 +59,5 @@ $
 
 
 
-      -
+
+

@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/b1QAAOSwVdNikSLX/s-l225.jpg
-      category: 'News'
+      categories: 'News'
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -16,7 +16,7 @@
 ---
 $
 
-Experience life Vivo V23 (Unlocked) 128GB DUAL SIM 6.44in 64MP 8GB RAM 5G 4G LTE 4200mAh - a 2-star Cell Phones & Smartphones device.
+Be on trend Vivo V23 (Unlocked) 128GB DUAL SIM 6.44in 64MP 8GB RAM 5G 4G LTE 4200mAh - a 1-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/195094478875?hash=item2d6c89801b%3Ag%3Ab1QAAOSwVdNikSLX&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Vivo V23 (Unlocked) 128GB DUAL SIM 6.44in 64MP 8GB RAM 5G 4G LTE 4200mAh. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/b1QAAOSwVdNikSLX/s-l225.jpg)and the additional images are![Vivo V23 (Unlocked) 128GB DUAL SIM 6.44in 64MP 8GB RAM 5G 4G LTE 4200mAh](https://i.ebayimg.com/images/g/b1QAAOSwVdNikSLX/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195094478875_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094478875_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094478875_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094478875_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094478875_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094478875_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195094478875_8_0_1/225x225.jpg)
 
 

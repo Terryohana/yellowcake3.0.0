@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/uboAAOSwZ3FhJOgk/s-l225.jpg'
-      category: 'News'
+      categories: 'News'
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Vivo iQOO 8 Smartphone Android 11 Snapdragon 888 Octa Core 6.56 Inch 5G GPS NFC from a well-known brand.This Portable smartphone is sure to be a Spotlight-item in your home. [Click Here](https://www.ebay.com/itm/154582233904?hash=item23fdd1b330%3Ag%3AuboAAOSwZ3FhJOgk&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo iQOO 8 Smartphone Android 11 Snapdragon 888 Octa Core 6.56 Inch 5G GPS NFC. Shipping cost is undefined.Here is the posting visibly ![Vivo iQOO 8 Smartphone Android 11 Snapdragon 888 Octa Core 6.56 Inch 5G GPS NFC](https://i.ebayimg.com/thumbs/images/g/uboAAOSwZ3FhJOgk/s-l225.jpg) to check out more postings here... ![Vivo iQOO 8 Smartphone Android 11 Snapdragon 888 Octa Core 6.56 Inch 5G GPS NFC](https://i.ebayimg.com/images/g/uboAAOSwZ3FhJOgk/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/154582233904_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154582233904_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154582233904_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154582233904_5_0_1/225x225.jpg)'
+      Introducing th Vivo iQOO 8 Smartphone Android 11 Snapdragon 888 Octa Core 6.56 Inch 5G GPS NFC from a well-known brand.This Hand-held smartphone is sure to be a Piece-de-resistance in your home. [Click Here](https://www.ebay.com/itm/154582233904?hash=item23fdd1b330%3Ag%3AuboAAOSwZ3FhJOgk&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Vivo iQOO 8 Smartphone Android 11 Snapdragon 888 Octa Core 6.56 Inch 5G GPS NFC. Shipping cost is undefined.Here is the posting visibly ![Vivo iQOO 8 Smartphone Android 11 Snapdragon 888 Octa Core 6.56 Inch 5G GPS NFC](https://i.ebayimg.com/thumbs/images/g/uboAAOSwZ3FhJOgk/s-l225.jpg) to check out more postings here... ![Vivo iQOO 8 Smartphone Android 11 Snapdragon 888 Octa Core 6.56 Inch 5G GPS NFC](https://i.ebayimg.com/images/g/uboAAOSwZ3FhJOgk/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/154582233904_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154582233904_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154582233904_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/154582233904_5_0_1/225x225.jpg)'
 
       
 

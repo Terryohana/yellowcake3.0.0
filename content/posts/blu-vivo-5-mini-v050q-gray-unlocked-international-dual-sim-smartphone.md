@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/gm0AAOSwShljDCI4/s-l225.jpg'
-      category: 'News'
+      categories: 'News'
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -12,13 +12,13 @@
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-      
 
+        
 ---
 $
-      Introducing th BLU Vivo 5 Mini V050Q - Gray ( Unlocked ) International Dual SIM Smartphone from a well-known brand.This handheld hand held device is sure to be a Discussion--starter in your home. [Click Here](https://www.ebay.com/itm/275438800507?hash=item40216e8e7b%3Ag%3Agm0AAOSwShljDCI4&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the BLU Vivo 5 Mini V050Q - Gray ( Unlocked ) International Dual SIM Smartphone. Shipping cost is undefined.Here is the posting visibly ![BLU Vivo 5 Mini V050Q - Gray ( Unlocked ) International Dual SIM Smartphone](https://i.ebayimg.com/thumbs/images/g/gm0AAOSwShljDCI4/s-l225.jpg) to check out more postings here... ![BLU Vivo 5 Mini V050Q - Gray ( Unlocked ) International Dual SIM Smartphone](https://i.ebayimg.com/images/g/gm0AAOSwShljDCI4/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275438800507_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275438800507_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275438800507_4_0_1/225x225.jpg)'
-
-      
+    Highly recommended, this Cell Phones & Smartphones device is available at a discounted price of 26.739 after a 10% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/275438800507?hash=item40216e8e7b%3Ag%3Agm0AAOSwShljDCI4&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the BLU Vivo 5 Mini V050Q - Gray ( Unlocked ) International Dual SIM Smartphone. The shipping cost is undefined.Product ImageBLU Vivo 5 Mini V050Q - Gray ( Unlocked ) International Dual SIM SmartphoneAdditional ImagesBLU Vivo 5 Mini V050Q - Gray ( Unlocked ) International Dual SIM Smartphone, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275438800507_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275438800507_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275438800507_4_0_1/225x225.jpg)
+    
+    
 
  ## Technical Facts 
 
@@ -57,5 +57,8 @@ $
 
 
 
-
-      -
+    
+    
+    
+    
+    

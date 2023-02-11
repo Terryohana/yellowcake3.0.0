@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/wWEAAOSweNFj5l2U/s-l225.jpg'
-      category: 'News'
+      categories: 'News'
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -12,13 +12,13 @@
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
+      
 
-        
 ---
 $
-    User-friendly, this Cell Phones & Smartphones device is available at a discounted price of 70.4 after a 12% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/134445136252?hash=item1f4d8df97c%3Ag%3AwWEAAOSweNFj5l2U&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the BLU V0311WW BLACK VIVO XI+ - 6.2 inch Full HD+ Display Smartphone, 128GB+6GB. The shipping cost is undefined.Product ImageBLU V0311WW BLACK VIVO XI+ - 6.2 inch Full HD+ Display Smartphone, 128GB+6GBAdditional ImagesBLU V0311WW BLACK VIVO XI+ - 6.2 inch Full HD+ Display Smartphone, 128GB+6GB, check vendor page, ![check vendor page]()
-    
-    
+      Introducing th BLU V0311WW BLACK VIVO XI+ - 6.2 inch Full HD+ Display Smartphone, 128GB+6GB from a well-known brand.This Maneuverable device  is sure to be a Gathering-spot in your home. [Click Here](https://www.ebay.com/itm/134445136252?hash=item1f4d8df97c%3Ag%3AwWEAAOSweNFj5l2U&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the BLU V0311WW BLACK VIVO XI+ - 6.2 inch Full HD+ Display Smartphone, 128GB+6GB. Shipping cost is undefined.Here is the posting visibly ![BLU V0311WW BLACK VIVO XI+ - 6.2 inch Full HD+ Display Smartphone, 128GB+6GB](https://i.ebayimg.com/thumbs/images/g/wWEAAOSweNFj5l2U/s-l225.jpg) to check out more postings here... ![BLU V0311WW BLACK VIVO XI+ - 6.2 inch Full HD+ Display Smartphone, 128GB+6GB](https://i.ebayimg.com/images/g/wWEAAOSweNFj5l2U/s-l1600.jpg), ![check vendor page]()'
+
+      
 
  ## Technical Facts 
 
@@ -57,8 +57,5 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+      -
