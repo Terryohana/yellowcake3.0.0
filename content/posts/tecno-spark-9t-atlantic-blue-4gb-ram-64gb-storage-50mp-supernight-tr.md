@@ -16,7 +16,7 @@
 ---
 $
 
-Make a difference Tecno Spark 9T (Atlantic Blue, 4GB RAM, 64GB Storage)|50MP SuperNight Tr - a 1-star Cell Phones & Smartphones device.
+Achieve your dreams Tecno Spark 9T (Atlantic Blue, 4GB RAM, 64GB Storage)|50MP SuperNight Tr - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/204114260614?hash=item2f86287286%3Ag%3AtyMAAOSwYitjQZEo&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Tecno Spark 9T (Atlantic Blue, 4GB RAM, 64GB Storage)|50MP SuperNight Tr. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/tyMAAOSwYitjQZEo/s-l225.jpg)and the additional images are![Tecno Spark 9T (Atlantic Blue, 4GB RAM, 64GB Storage)|50MP SuperNight Tr](https://i.ebayimg.com/images/g/tyMAAOSwYitjQZEo/s-l1200.jpg)![check vendor page]()
 
 

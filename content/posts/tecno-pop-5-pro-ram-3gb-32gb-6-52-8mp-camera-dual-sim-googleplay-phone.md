@@ -16,7 +16,7 @@
 ---
 $
 
-Stay up to date Tecno Pop 5 Pro (RAM 3GB, 32GB) 6.52"  8MP Camera Dual Sim Googleplay Phone - a 1-star Cell Phones & Smartphones device.
+Be yourself Tecno Pop 5 Pro (RAM 3GB, 32GB) 6.52"  8MP Camera Dual Sim Googleplay Phone - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/185270454940?hash=item2b22faca9c%3Ag%3A1pUAAOSwFuJh8OfO&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Tecno Pop 5 Pro (RAM 3GB, 32GB) 6.52"  8MP Camera Dual Sim Googleplay Phone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/1pUAAOSwFuJh8OfO/s-l225.jpg)and the additional images are![Tecno Pop 5 Pro (RAM 3GB, 32GB) 6.52"  8MP Camera Dual Sim Googleplay Phone](https://i.ebayimg.com/images/g/1pUAAOSwFuJh8OfO/s-l960.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185270454940_2_0_1/225x225.jpg)
 
 

@@ -3,8 +3,9 @@
       title: tecno pova 5g 128gb 8gb ram 6 8 50mp fully unlocked phone open new box
       status: Published
       date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/PNQAAOSwqbli1Try/s-l225.jpg
-      categories: 
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/PNQAAOSwqbli1Try/s-l225.jpg'
+       
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -12,14 +13,12 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-        
+
 ---
 $
+      Introducing th Tecno POVA 5G (128GB, 8GB RAM) 6.8 50MP Fully Unlocked Phone open new box from a well-known brand.This Light smartphone is sure to be a Point-of-discussion in your home. [Click Here](https://www.ebay.com/itm/334725598269?hash=item4def334c3d%3Ag%3APNQAAOSwqbli1Try&amdata=enc%3AAQAHAAAA4I8rgIP9cvklxD9Dcw7kNEPLYCG3i2McNRmH0Somo93CIwl%2FbJBIfY9ABguaBThrlEBmDbMzzQE%2BemSgve%2FUI9J%2Fo3F699wzMgUgr0GNfw%2FuK0EXa4BPRav8chgtLhJ1yMEUTYRHuqkKoVdEJxYJT1xll4aUhPNs2m4fJ99nNrmrC356%2Fyu7tZ%2FJfENKH9%2Be7CzT0lJ7OxbpDFYGlgYgb1xPsm3ovLnBYOTPUC32D9SMvtkSqkOlAZnbJOUAv0tXV7vj6PecbfnRWlhJA1d73xJE7MvgYyCqGVnq%2F0uToe5P&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Tecno POVA 5G (128GB, 8GB RAM) 6.8 50MP Fully Unlocked Phone open new box. Shipping cost is undefined.Here is the posting visibly ![Tecno POVA 5G (128GB, 8GB RAM) 6.8 50MP Fully Unlocked Phone open new box](https://i.ebayimg.com/thumbs/images/g/PNQAAOSwqbli1Try/s-l225.jpg) to check out more postings here... ![Tecno POVA 5G (128GB, 8GB RAM) 6.8 50MP Fully Unlocked Phone open new box](https://i.ebayimg.com/images/g/PNQAAOSwqbli1Try/s-l500.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/334725598269_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/334725598269_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/334725598269_4_0_1/225x225.jpg)'
 
-Be on trend Tecno POVA 5G (128GB, 8GB RAM) 6.8 50MP Fully Unlocked Phone open new box - a 2-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/334725598269?hash=item4def334c3d%3Ag%3APNQAAOSwqbli1Try&amdata=enc%3AAQAHAAAA4I8rgIP9cvklxD9Dcw7kNEPLYCG3i2McNRmH0Somo93CIwl%2FbJBIfY9ABguaBThrlEBmDbMzzQE%2BemSgve%2FUI9J%2Fo3F699wzMgUgr0GNfw%2FuK0EXa4BPRav8chgtLhJ1yEH4yLTY0HWsSYMVGnXo4CJCoCgHf0NzsqnnxI2Q%2BXgSbrx9VA%2FOtAmDcG%2FpHAxjFn2IAvCk3KBxLuLvM4Lyg8rgreyRcWw4mj1Xse80uO2xPf1hyp9uNQaf4j2YSAfiLPfpq%2BKfhW7SN5j8hqsXZJ9caniZOPlcc6rkYRuGVWoO&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Tecno POVA 5G (128GB, 8GB RAM) 6.8 50MP Fully Unlocked Phone open new box. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/PNQAAOSwqbli1Try/s-l225.jpg)and the additional images are![Tecno POVA 5G (128GB, 8GB RAM) 6.8 50MP Fully Unlocked Phone open new box](https://i.ebayimg.com/images/g/PNQAAOSwqbli1Try/s-l500.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/334725598269_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/334725598269_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/334725598269_4_0_1/225x225.jpg)
-
-
+      
 
  ## Technical Facts 
 
@@ -59,5 +58,4 @@ $[Click Here](https://www.ebay.com/itm/334725598269?hash=item4def334c3d%3Ag%3APN
 
 
 
-
-
+      -

@@ -16,7 +16,7 @@
 ---
 $
 
-Be bold Tecno POVA 3 (Eco Black, 6GB RAM, 128GB Storage)| 7000mAh Battery |33W F - a 4-star Cell Phones & Smartphones device.
+Be inspired Tecno POVA 3 (Eco Black, 6GB RAM, 128GB Storage)| 7000mAh Battery |33W F - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/204085846473?hash=item2f8476e1c9%3Ag%3AUcQAAOSwq-pjFt5h&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Tecno POVA 3 (Eco Black, 6GB RAM, 128GB Storage)| 7000mAh Battery |33W F. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/UcQAAOSwq-pjFt5h/s-l225.jpg)and the additional images are![Tecno POVA 3 (Eco Black, 6GB RAM, 128GB Storage)| 7000mAh Battery |33W F](https://i.ebayimg.com/images/g/UcQAAOSwq-pjFt5h/s-l1200.jpg)![check vendor page]()
 
 

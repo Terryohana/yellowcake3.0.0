@@ -3,9 +3,8 @@
       title: tecno pova 5g 128gb 8gb ram 6 9 50mp camera dual sim googleplay phone
       status: Published
       date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/VAAAAOSwk9NiC08W/s-l225.jpg'
-       
-
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/VAAAAOSwk9NiC08W/s-l225.jpg
+      categories: 
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -13,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th Tecno POVA 5G (128GB, 8GB RAM) 6.9"  50MP Camera Dual Sim Googleplay Phone from a well-known brand.This Convenient size device  is sure to be a Conversation-starter in your home. [Click Here](https://www.ebay.com/itm/175159342752?hash=item28c84f76a0%3Ag%3AVAAAAOSwk9NiC08W&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Tecno POVA 5G (128GB, 8GB RAM) 6.9"  50MP Camera Dual Sim Googleplay Phone. Shipping cost is undefined.Here is the posting visibly ![Tecno POVA 5G (128GB, 8GB RAM) 6.9"  50MP Camera Dual Sim Googleplay Phone](https://i.ebayimg.com/thumbs/images/g/VAAAAOSwk9NiC08W/s-l225.jpg) to check out more postings here... ![Tecno POVA 5G (128GB, 8GB RAM) 6.9"  50MP Camera Dual Sim Googleplay Phone](https://i.ebayimg.com/images/g/VAAAAOSwk9NiC08W/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175159342752_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175159342752_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175159342752_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175159342752_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175159342752_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175159342752_7_0_1/225x225.jpg)'
 
-      
+Be ahead of the curve Tecno POVA 5G (128GB, 8GB RAM) 6.9"  50MP Camera Dual Sim Googleplay Phone - a 2-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/175159342752?hash=item28c84f76a0%3Ag%3AVAAAAOSwk9NiC08W&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Tecno POVA 5G (128GB, 8GB RAM) 6.9"  50MP Camera Dual Sim Googleplay Phone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/VAAAAOSwk9NiC08W/s-l225.jpg)and the additional images are![Tecno POVA 5G (128GB, 8GB RAM) 6.9"  50MP Camera Dual Sim Googleplay Phone](https://i.ebayimg.com/images/g/VAAAAOSwk9NiC08W/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175159342752_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175159342752_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175159342752_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175159342752_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175159342752_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175159342752_7_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -58,4 +59,5 @@ $
 
 
 
-      -
+
+

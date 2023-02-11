@@ -3,22 +3,23 @@
       title: 19 ci6n 6 128gb nfc 2sim 3g lte gps black unlocked
       status: Published
       date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/5yMAAOSwxupjTq-Z/s-l225.jpg'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/5yMAAOSwxupjTq-Z/s-l225.jpg
       categories: 
-
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-
+      
         
 ---
 $
-    Featured in media, this Cell Phones & Smartphones device is available at a discounted price of 207.8951 after a 11% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/285110072340?hash=item4261e27414%3Ag%3A5yMAAOSwxupjTq-Z&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the 19 (CI6n) 6/128Gb NFC 2SIM 3G / LTE / GPS Black Unlocked. The shipping cost is undefined.Product Image19 (CI6n) 6/128Gb NFC 2SIM 3G / LTE / GPS Black UnlockedAdditional Images19 (CI6n) 6/128Gb NFC 2SIM 3G / LTE / GPS Black Unlocked, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/285110072340_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285110072340_3_0_1/225x225.jpg)
-    
-    
+
+Be in touch 19 (CI6n) 6/128Gb NFC 2SIM 3G / LTE / GPS Black Unlocked - a 1-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/285110072340?hash=item4261e27414%3Ag%3A5yMAAOSwxupjTq-Z&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the 19 (CI6n) 6/128Gb NFC 2SIM 3G / LTE / GPS Black Unlocked. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/5yMAAOSwxupjTq-Z/s-l225.jpg)and the additional images are![19 (CI6n) 6/128Gb NFC 2SIM 3G / LTE / GPS Black Unlocked](https://i.ebayimg.com/images/g/5yMAAOSwxupjTq-Z/s-l640.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/285110072340_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285110072340_3_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -57,8 +58,6 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+
+

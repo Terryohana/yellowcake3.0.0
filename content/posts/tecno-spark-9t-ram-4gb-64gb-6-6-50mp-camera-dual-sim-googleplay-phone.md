@@ -16,7 +16,7 @@
 ---
 $
 
-Seize the day Tecno Spark 9T (RAM 4GB, 64GB) 6.6"  50MP Camera Dual SIM Googleplay Phone - a 1-star Cell Phones & Smartphones device.
+Make the most of your life Tecno Spark 9T (RAM 4GB, 64GB) 6.6"  50MP Camera Dual SIM Googleplay Phone - a 1-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/175386174913?hash=item28d5d4a5c1%3Ag%3ABsIAAOSwesdi%7EKW0&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Tecno Spark 9T (RAM 4GB, 64GB) 6.6"  50MP Camera Dual SIM Googleplay Phone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/BsIAAOSwesdi~KW0/s-l225.jpg)and the additional images are![Tecno Spark 9T (RAM 4GB, 64GB) 6.6"  50MP Camera Dual SIM Googleplay Phone](https://i.ebayimg.com/images/g/BsIAAOSwesdi~KW0/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175386174913_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175386174913_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175386174913_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175386174913_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175386174913_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175386174913_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175386174913_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175386174913_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175386174913_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175386174913_11_0_1/225x225.jpg)
 
 
