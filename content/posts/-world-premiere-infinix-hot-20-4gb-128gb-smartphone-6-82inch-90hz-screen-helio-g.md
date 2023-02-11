@@ -1,6 +1,6 @@
 ---
       template: SinglePost
-      title: world Premiere*infinix Hot 20 4gb 128gb Smartphone 6.82inch 90hz Screen Helio G
+      title: -*world Premiere*infinix Hot 20 4gb 128gb Smartphone 6.82inch 90hz Screen Helio G
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/fWoAAOSwjHVjxA88/s-l225.jpg'

@@ -1,6 +1,6 @@
 ---
       template: SinglePost
-      title: @ ZTE Blade Vantage 2 - 16GB - Black (Verizon)
+      title: -- @ ZTE Blade Vantage 2 - 16GB - Black (Verizon)
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/NgkAAOSwvchiu646/s-l225.jpg'
