@@ -1,6 +1,6 @@
 ---
       template: SinglePost
-      title: -- Alcatel: V155 Cellular Phone - Vodafone Network
+      title: -- Alcatel V155 Cellular Phone - Vodafone Network
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/IkoAAOSwFmJjZUtv/s-l225.jpg'
