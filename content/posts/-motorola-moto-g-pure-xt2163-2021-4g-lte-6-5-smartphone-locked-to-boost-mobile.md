@@ -1,6 +1,6 @@
 ---
       template: SinglePost
-      title: @Motorola Moto G Pure XT2163 2021 4G/LTE/6.5" SmartPhone. Locked to Boost Mobile
+      title: Motorola Moto G Pure XT2163 2021 4G/LTE/6.5" SmartPhone. Locked to Boost Mobile
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/qTwAAOSwgS1jurOs/s-l225.jpg'
