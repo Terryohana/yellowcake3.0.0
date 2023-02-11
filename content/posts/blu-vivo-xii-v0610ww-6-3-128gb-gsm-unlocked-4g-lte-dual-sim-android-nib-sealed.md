@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/COIAAOSwVvZjdsjg/s-l225.jpg
-      categories: 'News'
+      categories: News
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -16,7 +16,7 @@
 ---
 $
 
-Make a difference BLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual SIM Android NIB- Sealed - a 4-star Cell Phones & Smartphones device.
+Be inspired BLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual SIM Android NIB- Sealed - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/195478234351?hash=item2d836924ef%3Ag%3ACOIAAOSwVvZjdsjg&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the BLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual SIM Android NIB- Sealed. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/COIAAOSwVvZjdsjg/s-l225.jpg)and the additional images are![BLU Vivo XII V0610ww 6.3" 128GB GSM Unlocked 4G LTE Dual SIM Android NIB- Sealed](https://i.ebayimg.com/images/g/COIAAOSwVvZjdsjg/s-l500.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195478234351_2_0_1/225x225.jpg)
 
 

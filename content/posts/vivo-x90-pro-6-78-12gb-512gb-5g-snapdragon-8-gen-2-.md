@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/Zs4AAOSwimBjf35a/s-l225.jpg
-      categories: 'News'
+      categories: News
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -16,7 +16,7 @@
 ---
 $
 
-Be fearless VIVO X90 Pro+  6.78" 12GB/512GB 5G Snapdragon 8 Gen 2  - a 5-star Cell Phones & Smartphones device.
+Stay on top of things VIVO X90 Pro+  6.78" 12GB/512GB 5G Snapdragon 8 Gen 2  - a 2-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/155276764264?hash=item2427376468%3Ag%3AZs4AAOSwimBjf35a&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the VIVO X90 Pro+  6.78" 12GB/512GB 5G Snapdragon 8 Gen 2 . Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/Zs4AAOSwimBjf35a/s-l225.jpg)and the additional images are![VIVO X90 Pro+  6.78" 12GB/512GB 5G Snapdragon 8 Gen 2 ](https://i.ebayimg.com/images/g/Zs4AAOSwimBjf35a/s-l640.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/155276764264_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155276764264_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155276764264_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155276764264_5_0_1/225x225.jpg)
 
 

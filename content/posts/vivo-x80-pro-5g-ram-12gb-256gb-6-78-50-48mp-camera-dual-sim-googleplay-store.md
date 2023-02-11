@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/2c0AAOSwcnRjEdmb/s-l225.jpg
-      categories: 'News'
+      categories: News
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -16,7 +16,7 @@
 ---
 $
 
-Be yourself Vivo X80 Pro 5G (RAM 12GB, 256GB) 6.78 50 48MP Camera Dual Sim Googleplay Store - a 2-star Cell Phones & Smartphones device.
+Be yourself Vivo X80 Pro 5G (RAM 12GB, 256GB) 6.78 50 48MP Camera Dual Sim Googleplay Store - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/385095505833?hash=item59a97b17a9%3Ag%3A2c0AAOSwcnRjEdmb&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Vivo X80 Pro 5G (RAM 12GB, 256GB) 6.78 50 48MP Camera Dual Sim Googleplay Store. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/2c0AAOSwcnRjEdmb/s-l225.jpg)and the additional images are![Vivo X80 Pro 5G (RAM 12GB, 256GB) 6.78 50 48MP Camera Dual Sim Googleplay Store](https://i.ebayimg.com/images/g/2c0AAOSwcnRjEdmb/s-l500.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/385095505833_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385095505833_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385095505833_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385095505833_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385095505833_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385095505833_7_0_1/225x225.jpg)
 
 

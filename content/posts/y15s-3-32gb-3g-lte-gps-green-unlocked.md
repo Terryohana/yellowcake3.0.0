@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/o0EAAOSwmxljUVxQ/s-l225.jpg
-      categories: 'News'
+      categories: News
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -16,7 +16,7 @@
 ---
 $
 
-Be the best you can be  Y15s 3/32GB 3G / LTE / GPS Green Unlocked - a 4-star Cell Phones & Smartphones device.
+Be confident Y15s 3/32GB 3G / LTE / GPS Green Unlocked - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/285134889104?hash=item42635d2090%3Ag%3Ao0EAAOSwmxljUVxQ&amdata=enc%3AAQAHAAAA4H5weTQhJgqX4QUHMCZDi28%2FrSrWXqXquB%2FL6DZdYT5PW%2Bmu%2BnPUgtdjIfhn8NjQk3mXALSAUzJ11A1CF%2B1EAQbTdYHkmQDGK1z2Dg34j43BndVUJP4JF6gjJQND7dziA5h%2F3r27B9P7TKQRof5ZMY6iBmyO1Q66mJmvz9fS5t1zVPnzfW1OQmAHPkCy1ehZlW02EIG%2Fbf%2FLqgtSd1QQS7DfLb3ONAhJ6g%2BoRh%2FlDj%2BYFHyzXdi6E8%2F%2FVEelfInudluoMjnuALCmCQrLctmhhhebMYDhtxQeN9Lks%2B8n3Hfc&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Y15s 3/32GB 3G / LTE / GPS Green Unlocked. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/o0EAAOSwmxljUVxQ/s-l225.jpg)and the additional images are![Y15s 3/32GB 3G / LTE / GPS Green Unlocked](https://i.ebayimg.com/images/g/o0EAAOSwmxljUVxQ/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/285134889104_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285134889104_3_0_1/225x225.jpg)
 
 

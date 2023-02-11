@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/F64AAOSwdQlivzlr/s-l225.jpg'
-      categories: 'News'
+      categories: News
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th New Vivo X80 5G SmartPhone 6.78" Dimensity 9000 120Hz Android 12 CN Version from a well-known brand.This Hand-held device  is sure to be a Show-of-interest in your home. [Click Here](https://www.ebay.com/itm/295073093540?hash=item44b3ba17a4%3Ag%3AF64AAOSwdQlivzlr&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the New Vivo X80 5G SmartPhone 6.78" Dimensity 9000 120Hz Android 12 CN Version. Shipping cost is undefined.Here is the posting visibly ![New Vivo X80 5G SmartPhone 6.78" Dimensity 9000 120Hz Android 12 CN Version](https://i.ebayimg.com/thumbs/images/g/F64AAOSwdQlivzlr/s-l225.jpg) to check out more postings here... ![New Vivo X80 5G SmartPhone 6.78" Dimensity 9000 120Hz Android 12 CN Version](https://i.ebayimg.com/images/g/F64AAOSwdQlivzlr/s-l960.jpg), ![check vendor page]()'
+      Introducing th New Vivo X80 5G SmartPhone 6.78" Dimensity 9000 120Hz Android 12 CN Version from a well-known brand.This well crafted smartphone is sure to be a Discussion--starter in your home. [Click Here](https://www.ebay.com/itm/295073093540?hash=item44b3ba17a4%3Ag%3AF64AAOSwdQlivzlr&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the New Vivo X80 5G SmartPhone 6.78" Dimensity 9000 120Hz Android 12 CN Version. Shipping cost is undefined.Here is the posting visibly ![New Vivo X80 5G SmartPhone 6.78" Dimensity 9000 120Hz Android 12 CN Version](https://i.ebayimg.com/thumbs/images/g/F64AAOSwdQlivzlr/s-l225.jpg) to check out more postings here... ![New Vivo X80 5G SmartPhone 6.78" Dimensity 9000 120Hz Android 12 CN Version](https://i.ebayimg.com/images/g/F64AAOSwdQlivzlr/s-l960.jpg), ![check vendor page]()'
 
       
 

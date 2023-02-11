@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/-i0AAOSwKyVjP1he/s-l225.jpg'
-      categories: 'News'
+      categories: News
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -12,13 +12,13 @@
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
+      
 
-        
 ---
 $
-    Featured in media, this Cell Phones & Smartphones device is available at a discounted price of 164.9433 after a 13% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/265916802345?hash=item3de9e06529%3Ag%3A-i0AAOSwKyVjP1he&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the VIVO Y30 8GB RAM 128GB Dual SIMs GSM Unlocked Smart Phone. The shipping cost is undefined.Product ImageVIVO Y30 8GB RAM 128GB Dual SIMs GSM Unlocked Smart PhoneAdditional ImagesVIVO Y30 8GB RAM 128GB Dual SIMs GSM Unlocked Smart Phone, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/265916802345_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265916802345_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265916802345_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265916802345_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265916802345_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265916802345_7_0_1/225x225.jpg)
-    
-    
+      Introducing th VIVO Y30 8GB RAM 128GB Dual SIMs GSM Unlocked Smart Phone from a well-known brand.This Miniature device  is sure to be a Decorative-statement in your home. [Click Here](https://www.ebay.com/itm/265916802345?hash=item3de9e06529%3Ag%3A-i0AAOSwKyVjP1he&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the VIVO Y30 8GB RAM 128GB Dual SIMs GSM Unlocked Smart Phone. Shipping cost is undefined.Here is the posting visibly ![VIVO Y30 8GB RAM 128GB Dual SIMs GSM Unlocked Smart Phone](https://i.ebayimg.com/thumbs/images/g/-i0AAOSwKyVjP1he/s-l225.jpg) to check out more postings here... ![VIVO Y30 8GB RAM 128GB Dual SIMs GSM Unlocked Smart Phone](https://i.ebayimg.com/images/g/-i0AAOSwKyVjP1he/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/265916802345_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265916802345_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265916802345_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265916802345_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265916802345_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265916802345_7_0_1/225x225.jpg)'
+
+      
 
  ## Technical Facts 
 
@@ -57,8 +57,5 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+      -

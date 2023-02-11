@@ -3,23 +3,22 @@
       title: vivo x6d cellphone 32gb 4g 1 7 ghz octa core 4gb ram
       status: Published
       date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/f8wAAOSw1bBjyDBB/s-l225.jpg
-      categories: 'News'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/f8wAAOSw1bBjyDBB/s-l225.jpg'
+      categories: News
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-      
+
         
 ---
 $
-
-Live life to the fullest Vivo X6D Cellphone 32GB 4G 1.7 GHz Octa-core 4GB Ram - a 2-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/195562936935?hash=item2d88759a67%3Ag%3Af8wAAOSw1bBjyDBB&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Vivo X6D Cellphone 32GB 4G 1.7 GHz Octa-core 4GB Ram. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/f8wAAOSw1bBjyDBB/s-l225.jpg)and the additional images are![Vivo X6D Cellphone 32GB 4G 1.7 GHz Octa-core 4GB Ram](https://i.ebayimg.com/images/g/f8wAAOSw1bBjyDBB/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195562936935_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195562936935_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195562936935_4_0_1/225x225.jpg)
-
-
+    User-endorsed, this Cell Phones & Smartphones device is available at a discounted price of 56.57520000000001 after a 12% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/195562936935?hash=item2d88759a67%3Ag%3Af8wAAOSw1bBjyDBB&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Vivo X6D Cellphone 32GB 4G 1.7 GHz Octa-core 4GB Ram. The shipping cost is undefined.Product ImageVivo X6D Cellphone 32GB 4G 1.7 GHz Octa-core 4GB RamAdditional ImagesVivo X6D Cellphone 32GB 4G 1.7 GHz Octa-core 4GB Ram, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195562936935_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195562936935_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195562936935_4_0_1/225x225.jpg)
+    
+    
 
  ## Technical Facts 
 
@@ -58,6 +57,8 @@ $[Click Here](https://www.ebay.com/itm/195562936935?hash=item2d88759a67%3Ag%3Af8
 
 
 
-
-
-
+    
+    
+    
+    
+    

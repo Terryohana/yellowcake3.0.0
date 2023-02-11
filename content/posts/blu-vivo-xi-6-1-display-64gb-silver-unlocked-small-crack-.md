@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/zQcAAOSwm4JjCv-o/s-l225.jpg
-      categories: 'News'
+      categories: News
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -16,7 +16,7 @@
 ---
 $
 
-Stay informed BLU Vivo XI+ - 6.1” Display - 64GB - Silver (Unlocked) Small Crack  - a 2-star Cell Phones & Smartphones device.
+Live life on the edge BLU Vivo XI+ - 6.1” Display - 64GB - Silver (Unlocked) Small Crack  - a 1-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/144695987780?hash=item21b08d8e44%3Ag%3AzQcAAOSwm4JjCv-o&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the BLU Vivo XI+ - 6.1” Display - 64GB - Silver (Unlocked) Small Crack . Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/zQcAAOSwm4JjCv-o/s-l225.jpg)and the additional images are![BLU Vivo XI+ - 6.1” Display - 64GB - Silver (Unlocked) Small Crack ](https://i.ebayimg.com/images/g/zQcAAOSwm4JjCv-o/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144695987780_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144695987780_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144695987780_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144695987780_5_0_1/225x225.jpg)
 
 

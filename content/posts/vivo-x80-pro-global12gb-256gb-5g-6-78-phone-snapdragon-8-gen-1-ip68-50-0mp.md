@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/MbEAAOSwWPliausn/s-l225.jpg
-      categories: 'News'
+      categories: News
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -16,7 +16,7 @@
 ---
 $
 
-Seize the day Vivo X80 PRO GLOBAL12GB 256GB 5G 6.78" Phone Snapdragon 8 Gen 1 IP68 50.0MP - a 3-star Cell Phones & Smartphones device.
+Be bold Vivo X80 PRO GLOBAL12GB 256GB 5G 6.78" Phone Snapdragon 8 Gen 1 IP68 50.0MP - a 2-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/275403358560?hash=item401f51c160%3Ag%3AMbEAAOSwWPliausn&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Vivo X80 PRO GLOBAL12GB 256GB 5G 6.78" Phone Snapdragon 8 Gen 1 IP68 50.0MP. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/MbEAAOSwWPliausn/s-l225.jpg)and the additional images are![Vivo X80 PRO GLOBAL12GB 256GB 5G 6.78" Phone Snapdragon 8 Gen 1 IP68 50.0MP](https://i.ebayimg.com/images/g/MbEAAOSwWPliausn/s-l640.jpg)![check vendor page]()
 
 

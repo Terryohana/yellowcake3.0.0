@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/3uYAAOSwzDBidd1~/s-l225.jpg'
-      categories: 'News'
+      categories: News
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th New VIVO X80 5G Smartphone Android 12 Dimensity 9000 Octa Core GPS NFC Touch ID from a well-known brand.This Convenient size hand held device is sure to be a Showstopper in your home. [Click Here](https://www.ebay.com/itm/175271546150?hash=item28ceff8d26%3Ag%3A3uYAAOSwzDBidd1%7E&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the New VIVO X80 5G Smartphone Android 12 Dimensity 9000 Octa Core GPS NFC Touch ID. Shipping cost is undefined.Here is the posting visibly ![New VIVO X80 5G Smartphone Android 12 Dimensity 9000 Octa Core GPS NFC Touch ID](https://i.ebayimg.com/thumbs/images/g/3uYAAOSwzDBidd1~/s-l225.jpg) to check out more postings here... ![New VIVO X80 5G Smartphone Android 12 Dimensity 9000 Octa Core GPS NFC Touch ID](https://i.ebayimg.com/images/g/3uYAAOSwzDBidd1~/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175271546150_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_9_0_1/225x225.jpg)'
+      Introducing th New VIVO X80 5G Smartphone Android 12 Dimensity 9000 Octa Core GPS NFC Touch ID from a well-known brand.This Pocket-sized device  is sure to be a Decorative-element in your home. [Click Here](https://www.ebay.com/itm/175271546150?hash=item28ceff8d26%3Ag%3A3uYAAOSwzDBidd1%7E&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the New VIVO X80 5G Smartphone Android 12 Dimensity 9000 Octa Core GPS NFC Touch ID. Shipping cost is undefined.Here is the posting visibly ![New VIVO X80 5G Smartphone Android 12 Dimensity 9000 Octa Core GPS NFC Touch ID](https://i.ebayimg.com/thumbs/images/g/3uYAAOSwzDBidd1~/s-l225.jpg) to check out more postings here... ![New VIVO X80 5G Smartphone Android 12 Dimensity 9000 Octa Core GPS NFC Touch ID](https://i.ebayimg.com/images/g/3uYAAOSwzDBidd1~/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175271546150_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175271546150_9_0_1/225x225.jpg)'
 
       
 
