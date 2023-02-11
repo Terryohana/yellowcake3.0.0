@@ -1,6 +1,6 @@
 ---
       template: SinglePost
-      title: **NEW** Infinix Hot 11S Phone Cover- matte black
+      title: NEW nfinix Hot 11S Phone Cover- matte black
       status: Published
       date: '2023-02-11'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/tJYAAOSw9IhirlsA/s-l225.jpg'
