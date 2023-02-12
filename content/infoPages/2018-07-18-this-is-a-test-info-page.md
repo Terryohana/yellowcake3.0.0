@@ -2,7 +2,7 @@
 template: DefaultPage
 slug: Info page for cheap ebay phones
 title: Info page for cheap ebay phones
-featuredImage: https://ucarecdn.com/0a485165-65c4-42ee-bf35-b93fbaf0fd2e/-/preview/-/rotate/270/
+featuredImage: https://cdn.mos.cms.futurecdn.net/WZeH9AQXp8frwN9uYKWYTd.jpg
 meta:
   description: "Info Page for cheap ebay phones "
   title: "Info page for cheap ebay phones "
