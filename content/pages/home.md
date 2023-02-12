@@ -2,7 +2,7 @@
 template: HomePage
 slug: ""
 title: Ebay Cheap Phones
-featuredImage: https://ucarecdn.com/159203d3-881d-4218-baa1-ca4427b48d0d/
+featuredImage: https://pixelz.cc/wp-content/uploads/2018/11/razer-phone-2-uhd-4k-wallpaper.jpg
 subtitle: Welcome to the best Place to find cheap phoes on ebay
 meta:
   description: Welcome to the best Place to find cheap phones on ebay
