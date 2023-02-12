@@ -2,8 +2,8 @@ const postcssPresetEnv = require('postcss-preset-env')
 
 module.exports = {
   siteMetadata: {
-    title: 'Yellowcake',
-    siteUrl: 'https://yellowcake.netlify.com'
+    title: 'Ebay Cheap Phones',
+    siteUrl: 'https://ebay-cheap-phones.netlify.app/'
   },
   plugins: [
     'gatsby-plugin-react-helmet',
@@ -12,15 +12,15 @@ module.exports = {
       resolve: 'gatsby-plugin-google-tagmanager',
       options: {
         /*id: 'GTM-add_your_tag_here',*/
-        id: 'GTM-P4RNF8D',
+        id: 'G-NPG74P89DL ',
         includeInDevelopment: false
       }
     },
     {
       resolve: `gatsby-plugin-manifest`,
       options: {
-        name: 'yellowcake',
-        short_name: 'yellowcake',
+        name: 'Ebay Cheap Phones',
+        short_name: 'Ebay Cheap Phones',
         start_url: '/',
         background_color: '#00C2BD',
         theme_color: '#00C2BD',
