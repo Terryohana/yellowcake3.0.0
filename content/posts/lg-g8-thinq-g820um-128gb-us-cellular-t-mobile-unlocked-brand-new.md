@@ -2,7 +2,7 @@
       template: SinglePost
       title: lg g8 thinq g820um 128gb us cellular t mobile unlocked brand new
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/xcwAAOSwm6xjKOQO/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th LG G8 ThinQ G820UM 128GB US Cellular T-Mobile Unlocked Brand New from a well-known brand.This Convenient size device  is sure to be a Eye-catching-item in your home. [Click Here](https://www.ebay.com/itm/204097037601?hash=item2f8521a521%3Ag%3AxcwAAOSwm6xjKOQO&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the LG G8 ThinQ G820UM 128GB US Cellular T-Mobile Unlocked Brand New. Shipping cost is undefined.Here is the posting visibly ![LG G8 ThinQ G820UM 128GB US Cellular T-Mobile Unlocked Brand New](https://i.ebayimg.com/thumbs/images/g/xcwAAOSwm6xjKOQO/s-l225.jpg) to check out more postings here... ![LG G8 ThinQ G820UM 128GB US Cellular T-Mobile Unlocked Brand New](https://i.ebayimg.com/images/g/xcwAAOSwm6xjKOQO/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/204097037601_2_0_1/225x225.jpg)'
+      Introducing th LG G8 ThinQ G820UM 128GB US Cellular T-Mobile Unlocked Brand New from a well-known brand.This Mobile device device  is sure to be a Draw-of-nterest in your home. [Click Here](https://www.ebay.com/itm/204097037601?hash=item2f8521a521%3Ag%3AxcwAAOSwm6xjKOQO&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the LG G8 ThinQ G820UM 128GB US Cellular T-Mobile Unlocked Brand New. Shipping cost is undefined.Here is the posting visibly ![LG G8 ThinQ G820UM 128GB US Cellular T-Mobile Unlocked Brand New](https://i.ebayimg.com/thumbs/images/g/xcwAAOSwm6xjKOQO/s-l225.jpg) to check out more postings here... ![LG G8 ThinQ G820UM 128GB US Cellular T-Mobile Unlocked Brand New](https://i.ebayimg.com/images/g/xcwAAOSwm6xjKOQO/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/204097037601_2_0_1/225x225.jpg)'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 51699 
+ - Feedback score - 51704 
 
 
       

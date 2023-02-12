@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th 351.Sony Ericsson W600 Very Rare - For Collectors - Unlocked from a well-known brand.This industrially made smartphone is sure to be a Attention-grabber in your home. [Click Here](https://www.ebay.com/itm/165933842921?hash=item26a26d81e9%3Ag%3AJpoAAOSw1s9j53Ie&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the 351.Sony Ericsson W600 Very Rare - For Collectors - Unlocked. Shipping cost is undefined.Here is the posting visibly ![351.Sony Ericsson W600 Very Rare - For Collectors - Unlocked](https://i.ebayimg.com/thumbs/images/g/JpoAAOSw1s9j53Ie/s-l225.jpg) to check out more postings here... ![351.Sony Ericsson W600 Very Rare - For Collectors - Unlocked](https://i.ebayimg.com/images/g/JpoAAOSw1s9j53Ie/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165933842921_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933842921_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933842921_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933842921_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933842921_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933842921_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933842921_8_0_1/225x225.jpg)'
+      Introducing th 351.Sony Ericsson W600 Very Rare - For Collectors - Unlocked from a well-known brand.This Convenient size hand held device is sure to be a Draw-of-nterest in your home. [Click Here](https://www.ebay.com/itm/165933842921?hash=item26a26d81e9%3Ag%3AJpoAAOSw1s9j53Ie&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the 351.Sony Ericsson W600 Very Rare - For Collectors - Unlocked. Shipping cost is undefined.Here is the posting visibly ![351.Sony Ericsson W600 Very Rare - For Collectors - Unlocked](https://i.ebayimg.com/thumbs/images/g/JpoAAOSw1s9j53Ie/s-l225.jpg) to check out more postings here... ![351.Sony Ericsson W600 Very Rare - For Collectors - Unlocked](https://i.ebayimg.com/images/g/JpoAAOSw1s9j53Ie/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165933842921_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933842921_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933842921_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933842921_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933842921_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933842921_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933842921_8_0_1/225x225.jpg)'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 1539 
+ - Feedback score - 1540 
 
 
       

@@ -2,7 +2,7 @@
       template: SinglePost
       title: htc 10 32gb glacier silver sprint works good cond check imei
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/cKgAAOSwDv1jpKo6/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th HTC 10 - 32GB - Glacier Silver (Sprint) Works - Good Cond - Check IMEI from a well-known brand.This Man-portable smartphone is sure to be a Show-of-interest in your home. [Click Here](https://www.ebay.com/itm/185708575420?hash=item2b3d17fabc%3Ag%3AcKgAAOSwDv1jpKo6&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the HTC 10 - 32GB - Glacier Silver (Sprint) Works - Good Cond - Check IMEI. Shipping cost is undefined.Here is the posting visibly ![HTC 10 - 32GB - Glacier Silver (Sprint) Works - Good Cond - Check IMEI](https://i.ebayimg.com/thumbs/images/g/cKgAAOSwDv1jpKo6/s-l225.jpg) to check out more postings here... ![HTC 10 - 32GB - Glacier Silver (Sprint) Works - Good Cond - Check IMEI](https://i.ebayimg.com/images/g/cKgAAOSwDv1jpKo6/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185708575420_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185708575420_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185708575420_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185708575420_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185708575420_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185708575420_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185708575420_8_0_1/225x225.jpg)'
+      Introducing th HTC 10 - 32GB - Glacier Silver (Sprint) Works - Good Cond - Check IMEI from a well-known brand.This Pocket-sized smartphone is sure to be a Topic-of-conversation in your home. [Click Here](https://www.ebay.com/itm/185708575420?hash=item2b3d17fabc%3Ag%3AcKgAAOSwDv1jpKo6&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the HTC 10 - 32GB - Glacier Silver (Sprint) Works - Good Cond - Check IMEI. Shipping cost is undefined.Here is the posting visibly ![HTC 10 - 32GB - Glacier Silver (Sprint) Works - Good Cond - Check IMEI](https://i.ebayimg.com/thumbs/images/g/cKgAAOSwDv1jpKo6/s-l225.jpg) to check out more postings here... ![HTC 10 - 32GB - Glacier Silver (Sprint) Works - Good Cond - Check IMEI](https://i.ebayimg.com/images/g/cKgAAOSwDv1jpKo6/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185708575420_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185708575420_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185708575420_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185708575420_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185708575420_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185708575420_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185708575420_8_0_1/225x225.jpg)'
 
       
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 44.95 
+ - Listed Price- 38.21 
 
 
       
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 3121 
+ - Feedback score - 3122 
 
 
       

@@ -16,7 +16,7 @@
 ---
 $
 
-Be the best you can be  Sony Ericsson K220i Cell Phone Blue (Unlocked) Classic Vintage 2G Mobile Phone - a 1-star Cell Phones & Smartphones device.
+Express yourself Sony Ericsson K220i Cell Phone Blue (Unlocked) Classic Vintage 2G Mobile Phone - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/225387897863?hash=item347a2a6407%3Ag%3A%7E6EAAOSwsHxj2BCl&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Sony Ericsson K220i Cell Phone Blue (Unlocked) Classic Vintage 2G Mobile Phone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/~6EAAOSwsHxj2BCl/s-l225.jpg)and the additional images are![Sony Ericsson K220i Cell Phone Blue (Unlocked) Classic Vintage 2G Mobile Phone](https://i.ebayimg.com/images/g/~6EAAOSwsHxj2BCl/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/225387897863_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225387897863_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225387897863_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225387897863_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225387897863_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225387897863_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225387897863_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225387897863_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225387897863_10_0_1/225x225.jpg)
 
 

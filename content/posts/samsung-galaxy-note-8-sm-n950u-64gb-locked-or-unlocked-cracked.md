@@ -16,7 +16,7 @@
         
 ---
 $
-    Must-have item, this Cell Phones & Smartphones device is available at a discounted price of 44.37 after a 13% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/275540351975?hash=item40277c1be7%3Ag%3AI3cAAOSwhi9jG3pw&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Galaxy Note 8 SM-N950U | 64GB | Locked or UNLOCKED | CRACKED. The shipping cost is undefined.Product ImageSamsung Galaxy Note 8 SM-N950U | 64GB | Locked or UNLOCKED | CRACKEDAdditional ImagesSamsung Galaxy Note 8 SM-N950U | 64GB | Locked or UNLOCKED | CRACKED, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275540351975_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275540351975_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275540351975_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275540351975_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275540351975_6_0_1/225x225.jpg)
+    Customer satisfaction, this Cell Phones & Smartphones device is available at a discounted price of 43.1032 after a 14% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/275540351975?hash=item40277c1be7%3Ag%3AI3cAAOSwhi9jG3pw&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Galaxy Note 8 SM-N950U | 64GB | Locked or UNLOCKED | CRACKED. The shipping cost is undefined.Product ImageSamsung Galaxy Note 8 SM-N950U | 64GB | Locked or UNLOCKED | CRACKEDAdditional ImagesSamsung Galaxy Note 8 SM-N950U | 64GB | Locked or UNLOCKED | CRACKED, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275540351975_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275540351975_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275540351975_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275540351975_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275540351975_6_0_1/225x225.jpg)
     
     
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 51.00 
+ - Listed Price- 50.12 
 
 
       

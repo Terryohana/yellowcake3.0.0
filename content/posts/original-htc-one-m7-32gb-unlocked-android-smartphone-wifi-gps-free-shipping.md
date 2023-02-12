@@ -2,7 +2,7 @@
       template: SinglePost
       title: original htc one m7 32gb unlocked android smartphone wifi gps free shipping
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/awkAAOSwT4xfprg7/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Stay up to date Original HTC One M7 - 32GB (Unlocked) Android Smartphone WIFI,GPS Free shipping - a 5-star Cell Phones & Smartphones device.
+Stay stylish Original HTC One M7 - 32GB (Unlocked) Android Smartphone WIFI,GPS Free shipping - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/393169261095?hash=item5b8ab6d227%3Ag%3AawkAAOSwT4xfprg7&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Original HTC One M7 - 32GB (Unlocked) Android Smartphone WIFI,GPS Free shipping. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/awkAAOSwT4xfprg7/s-l225.jpg)and the additional images are![Original HTC One M7 - 32GB (Unlocked) Android Smartphone WIFI,GPS Free shipping](https://i.ebayimg.com/images/g/awkAAOSwT4xfprg7/s-l225.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/393169261095_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/393169261095_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/393169261095_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/393169261095_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/393169261095_6_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/393169261095?hash=item5b8ab6d227%3Ag%3Aaw
 
       
 
- - Feedback score - 947 
+ - Feedback score - 948 
 
 
       

@@ -16,7 +16,7 @@
         
 ---
 $
-    Best-seller, this Cell Phones & Smartphones device is available at a discounted price of 125.99100000000001 after a 10% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/185640753222?hash=item2b390d1846%3Ag%3A%7Eg0AAOSwYhJjYWQL&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Galaxy S10e G970U Unlocked Verizon T-Mobile Mint Boost Straight Talk. The shipping cost is undefined.Product ImageSamsung Galaxy S10e G970U Unlocked Verizon T-Mobile Mint Boost Straight TalkAdditional ImagesSamsung Galaxy S10e G970U Unlocked Verizon T-Mobile Mint Boost Straight Talk, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185640753222_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_12_0_1/225x225.jpg)
+    Market leader, this Cell Phones & Smartphones device is available at a discounted price of 128.9914 after a 14% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/185640753222?hash=item2b390d1846%3Ag%3A%7Eg0AAOSwYhJjYWQL&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Galaxy S10e G970U Unlocked Verizon T-Mobile Mint Boost Straight Talk. The shipping cost is undefined.Product ImageSamsung Galaxy S10e G970U Unlocked Verizon T-Mobile Mint Boost Straight TalkAdditional ImagesSamsung Galaxy S10e G970U Unlocked Verizon T-Mobile Mint Boost Straight Talk, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185640753222_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185640753222_12_0_1/225x225.jpg)
     
     
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 139.99 
+ - Listed Price- 149.99 
 
 
       

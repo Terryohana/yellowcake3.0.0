@@ -16,7 +16,7 @@
 ---
 $
 
-Stay connected 575.Sony Ericsson Urbano Mond Very Rare - For Collectors - Locked AUKDDI - a 2-star Cell Phones & Smartphones device.
+Stay stylish 575.Sony Ericsson Urbano Mond Very Rare - For Collectors - Locked AUKDDI - a 3-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/165934233876?hash=item26a2737914%3Ag%3AMjkAAOSwIulj59WD&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the 575.Sony Ericsson Urbano Mond Very Rare - For Collectors - Locked AUKDDI. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/MjkAAOSwIulj59WD/s-l225.jpg)and the additional images are![575.Sony Ericsson Urbano Mond Very Rare - For Collectors - Locked AUKDDI](https://i.ebayimg.com/images/g/MjkAAOSwIulj59WD/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165934233876_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934233876_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934233876_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934233876_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934233876_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934233876_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934233876_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934233876_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934233876_10_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/165934233876?hash=item26a2737914%3Ag%3AMj
 
       
 
- - Feedback score - 1539 
+ - Feedback score - 1540 
 
 
       

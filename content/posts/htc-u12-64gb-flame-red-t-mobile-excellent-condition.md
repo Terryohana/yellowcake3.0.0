@@ -2,7 +2,7 @@
       template: SinglePost
       title: htc u12 64gb flame red t mobile excellent condition
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/AwMAAOSwqsZjEdWe/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Discover yourself HTC U12+ - 64GB - Flame Red - T-Mobile - Excellent Condition - a 4-star Cell Phones & Smartphones device.
+Be the best you can be HTC U12+ - 64GB - Flame Red - T-Mobile - Excellent Condition - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/195324029992?hash=item2d7a382c28%3Ag%3AAwMAAOSwqsZjEdWe&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the HTC U12+ - 64GB - Flame Red - T-Mobile - Excellent Condition. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/AwMAAOSwqsZjEdWe/s-l225.jpg)and the additional images are![HTC U12+ - 64GB - Flame Red - T-Mobile - Excellent Condition](https://i.ebayimg.com/images/g/AwMAAOSwqsZjEdWe/s-l960.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195324029992_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195324029992_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195324029992_4_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/195324029992?hash=item2d7a382c28%3Ag%3AAw
 
       
 
- - Feedback score - 3287856 
+ - Feedback score - 3288583 
 
 
       

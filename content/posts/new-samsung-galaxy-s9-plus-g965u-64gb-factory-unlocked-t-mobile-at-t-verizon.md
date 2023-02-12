@@ -16,7 +16,7 @@
 ---
 $
 
-Make memories New Samsung Galaxy S9 Plus G965U 64GB Factory Unlocked T-Mobile AT&T Verizon - a 3-star Cell Phones & Smartphones device.
+Make your mark New Samsung Galaxy S9 Plus G965U 64GB Factory Unlocked T-Mobile AT&T Verizon - a 2-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/194788604292?hash=item2d5a4e3984%3Ag%3AupoAAOSw4Ohcv3hh&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the New Samsung Galaxy S9 Plus G965U 64GB Factory Unlocked T-Mobile AT&T Verizon. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/upoAAOSw4Ohcv3hh/s-l225.jpg)and the additional images are![New Samsung Galaxy S9 Plus G965U 64GB Factory Unlocked T-Mobile AT&T Verizon](https://i.ebayimg.com/images/g/upoAAOSw4Ohcv3hh/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/194788604292_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/194788604292_3_0_1/225x225.jpg)
 
 

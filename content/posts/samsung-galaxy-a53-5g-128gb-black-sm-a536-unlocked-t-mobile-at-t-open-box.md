@@ -2,23 +2,24 @@
       template: SinglePost
       title: samsung galaxy a53 5g 128gb black sm a536 unlocked t mobile at t open box
       status: Published
-      date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/9G4AAOSwKCtjdqLT/s-l225.jpg'
+      date: '2023-02-12'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/9G4AAOSwKCtjdqLT/s-l225.jpg
       categories: 
-
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-
+      
         
 ---
 $
-    User-friendly, this Cell Phones & Smartphones device is available at a discounted price of 260.991 after a 10% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/275544148948?hash=item4027b60bd4%3Ag%3A9G4AAOSwKCtjdqLT&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Galaxy A53 5G 128GB - Black SM-A536 (Unlocked T-Mobile AT&T) Open Box. The shipping cost is undefined.Product ImageSamsung Galaxy A53 5G 128GB - Black SM-A536 (Unlocked T-Mobile AT&T) Open BoxAdditional ImagesSamsung Galaxy A53 5G 128GB - Black SM-A536 (Unlocked T-Mobile AT&T) Open Box, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275544148948_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275544148948_3_0_1/225x225.jpg)
-    
-    
+
+Be yourself Samsung Galaxy A53 5G 128GB - Black SM-A536 (Unlocked T-Mobile AT&T) Open Box - a 1-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/275544148948?hash=item4027b60bd4%3Ag%3A9G4AAOSwKCtjdqLT&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Samsung Galaxy A53 5G 128GB - Black SM-A536 (Unlocked T-Mobile AT&T) Open Box. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/9G4AAOSwKCtjdqLT/s-l225.jpg)and the additional images are![Samsung Galaxy A53 5G 128GB - Black SM-A536 (Unlocked T-Mobile AT&T) Open Box](https://i.ebayimg.com/images/g/9G4AAOSwKCtjdqLT/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275544148948_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275544148948_3_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -42,7 +43,7 @@ $
 
       
 
- - Feedback score - 2592 
+ - Feedback score - 2595 
 
 
       
@@ -57,8 +58,6 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+
+

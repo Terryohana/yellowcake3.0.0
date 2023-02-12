@@ -2,7 +2,7 @@
       template: SinglePost
       title: lot of 6x untested htc dream google g1 3 2 black t mobile android smartphones
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/XowAAOSwAZdjgqxt/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Lot of 6x Untested HTC Dream Google G1 3.2" Black T-Mobile Android Smartphones from a well-known brand.This Portable device  is sure to be a Center-of-interest in your home. [Click Here](https://www.ebay.com/itm/304717535179?hash=item46f29497cb%3Ag%3AXowAAOSwAZdjgqxt&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Lot of 6x Untested HTC Dream Google G1 3.2" Black T-Mobile Android Smartphones. Shipping cost is undefined.Here is the posting visibly ![Lot of 6x Untested HTC Dream Google G1 3.2" Black T-Mobile Android Smartphones](https://i.ebayimg.com/thumbs/images/g/XowAAOSwAZdjgqxt/s-l225.jpg) to check out more postings here... ![Lot of 6x Untested HTC Dream Google G1 3.2" Black T-Mobile Android Smartphones](https://i.ebayimg.com/images/g/XowAAOSwAZdjgqxt/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/304717535179_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/304717535179_3_0_1/225x225.jpg)'
+      Introducing th Lot of 6x Untested HTC Dream Google G1 3.2" Black T-Mobile Android Smartphones from a well-known brand.This Wireless device  is sure to be a Discussion--starter in your home. [Click Here](https://www.ebay.com/itm/304717535179?hash=item46f29497cb%3Ag%3AXowAAOSwAZdjgqxt&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Lot of 6x Untested HTC Dream Google G1 3.2" Black T-Mobile Android Smartphones. Shipping cost is undefined.Here is the posting visibly ![Lot of 6x Untested HTC Dream Google G1 3.2" Black T-Mobile Android Smartphones](https://i.ebayimg.com/thumbs/images/g/XowAAOSwAZdjgqxt/s-l225.jpg) to check out more postings here... ![Lot of 6x Untested HTC Dream Google G1 3.2" Black T-Mobile Android Smartphones](https://i.ebayimg.com/images/g/XowAAOSwAZdjgqxt/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/304717535179_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/304717535179_3_0_1/225x225.jpg)'
 
       
 

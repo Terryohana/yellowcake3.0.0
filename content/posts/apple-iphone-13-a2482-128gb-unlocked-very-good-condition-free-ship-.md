@@ -16,7 +16,7 @@
         
 ---
 $
-    Most trusted, this Cell Phones & Smartphones device is available at a discounted price of 475.1912 after a 12% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/354521087547?hash=item528b1a7e3b%3Ag%3AMUwAAOSwuJtjcrgK&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Apple iPhone 13, A2482, 128GB, Unlocked, Very Good Condition (Free Ship). The shipping cost is undefined.Product ImageApple iPhone 13, A2482, 128GB, Unlocked, Very Good Condition (Free Ship)Additional ImagesApple iPhone 13, A2482, 128GB, Unlocked, Very Good Condition (Free Ship), check vendor page, ![check vendor page]()
+    Industry standard, this Cell Phones & Smartphones device is available at a discounted price of 469.7913 after a 13% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/354521087547?hash=item528b1a7e3b%3Ag%3AMUwAAOSwuJtjcrgK&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Apple iPhone 13, A2482, 128GB, Unlocked, Very Good Condition (Free Ship). The shipping cost is undefined.Product ImageApple iPhone 13, A2482, 128GB, Unlocked, Very Good Condition (Free Ship)Additional ImagesApple iPhone 13, A2482, 128GB, Unlocked, Very Good Condition (Free Ship), check vendor page, ![check vendor page]()
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 1858 
+ - Feedback score - 1857 
 
 
       

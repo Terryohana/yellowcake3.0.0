@@ -2,7 +2,7 @@
       template: SinglePost
       title: samsung galaxy s7 s7 edge 32gb unlocked at t verizon t mobile cricket metro
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/d~wAAOSwQDtin8CW/s-l225.jpg'
       categories: 
 
@@ -16,7 +16,7 @@
         
 ---
 $
-    High-quality product, this Cell Phones & Smartphones device is available at a discounted price of 71.1555 after a 11% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/265554575159?hash=item3dd4493f37%3Ag%3Ad%7EwAAOSwQDtin8CW&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Galaxy S7 | S7 edge 32GB Unlocked AT&T Verizon T-Mobile Cricket Metro. The shipping cost is undefined.Product ImageSamsung Galaxy S7 | S7 edge 32GB Unlocked AT&T Verizon T-Mobile Cricket MetroAdditional ImagesSamsung Galaxy S7 | S7 edge 32GB Unlocked AT&T Verizon T-Mobile Cricket Metro, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/265554575159_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265554575159_3_0_1/225x225.jpg)
+    Trusted name, this Cell Phones & Smartphones device is available at a discounted price of 68.757 after a 14% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/265554575159?hash=item3dd4493f37%3Ag%3Ad%7EwAAOSwQDtin8CW&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Galaxy S7 | S7 edge 32GB Unlocked AT&T Verizon T-Mobile Cricket Metro. The shipping cost is undefined.Product ImageSamsung Galaxy S7 | S7 edge 32GB Unlocked AT&T Verizon T-Mobile Cricket MetroAdditional ImagesSamsung Galaxy S7 | S7 edge 32GB Unlocked AT&T Verizon T-Mobile Cricket Metro, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/265554575159_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265554575159_3_0_1/225x225.jpg)
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 1820 
+ - Feedback score - 1822 
 
 
       

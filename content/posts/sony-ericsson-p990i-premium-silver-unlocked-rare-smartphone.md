@@ -3,23 +3,22 @@
       title: sony ericsson p990i premium silver unlocked rare smartphone
       status: Published
       date: '2023-02-12'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/ewYAAOSwxFxiUbop/s-l225.jpg
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/ewYAAOSwxFxiUbop/s-l225.jpg'
       categories: 
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-      
+
         
 ---
 $
-
-Be confident Sony Ericsson P990i - Premium Silver ( Unlocked ) Rare Smartphone - a 1-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/285061118784?hash=item425ef77b40%3Ag%3AewYAAOSwxFxiUbop&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Sony Ericsson P990i - Premium Silver ( Unlocked ) Rare Smartphone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/ewYAAOSwxFxiUbop/s-l225.jpg)and the additional images are![Sony Ericsson P990i - Premium Silver ( Unlocked ) Rare Smartphone](https://i.ebayimg.com/images/g/ewYAAOSwxFxiUbop/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/285061118784_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_12_0_1/225x225.jpg)
-
-
+    Innovative technology, this Cell Phones & Smartphones device is available at a discounted price of 109.57650000000001 after a 13% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/285061118784?hash=item425ef77b40%3Ag%3AewYAAOSwxFxiUbop&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony Ericsson P990i - Premium Silver ( Unlocked ) Rare Smartphone. The shipping cost is undefined.Product ImageSony Ericsson P990i - Premium Silver ( Unlocked ) Rare SmartphoneAdditional ImagesSony Ericsson P990i - Premium Silver ( Unlocked ) Rare Smartphone, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/285061118784_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285061118784_12_0_1/225x225.jpg)
+    
+    
 
  ## Technical Facts 
 
@@ -58,6 +57,8 @@ $[Click Here](https://www.ebay.com/itm/285061118784?hash=item425ef77b40%3Ag%3Aew
 
 
 
-
-
-
+    
+    
+    
+    
+    

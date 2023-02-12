@@ -16,7 +16,7 @@
 ---
 $
 
-Stay motivated Apple iPhone 12 64GB Unlocked Smartphone - Very Good - a 1-star Cell Phones & Smartphones device.
+Be ahead of the curve Apple iPhone 12 64GB Unlocked Smartphone - Very Good - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/363552187845?hash=item54a56625c5%3Ag%3AjjoAAOSw2%7EdhS2Sd&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Apple iPhone 12 64GB Unlocked Smartphone - Very Good. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/jjoAAOSw2~dhS2Sd/s-l225.jpg)and the additional images are![Apple iPhone 12 64GB Unlocked Smartphone - Very Good](https://i.ebayimg.com/images/g/jjoAAOSw2~dhS2Sd/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/363552187845_2_0_1/225x225.jpg)
 
 

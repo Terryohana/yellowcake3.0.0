@@ -16,7 +16,7 @@
 ---
 $
 
-Reach your goals *WHITE SCREEN* SONY ERICSSON TWIST W600i ROGERS CHATR CELL PHONE GSM CELLULAR - a 1-star Cell Phones & Smartphones device.
+Discover yourself *WHITE SCREEN* SONY ERICSSON TWIST W600i ROGERS CHATR CELL PHONE GSM CELLULAR - a 1-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/184411562932?hash=item2aefc923b4%3Ag%3Aqn0AAOSwyZhfPtap&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the *WHITE SCREEN* SONY ERICSSON TWIST W600i ROGERS CHATR CELL PHONE GSM CELLULAR. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/qn0AAOSwyZhfPtap/s-l225.jpg)and the additional images are![*WHITE SCREEN* SONY ERICSSON TWIST W600i ROGERS CHATR CELL PHONE GSM CELLULAR](https://i.ebayimg.com/images/g/qn0AAOSwyZhfPtap/s-l960.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/184411562932_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/184411562932_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/184411562932_4_0_1/225x225.jpg)
 
 

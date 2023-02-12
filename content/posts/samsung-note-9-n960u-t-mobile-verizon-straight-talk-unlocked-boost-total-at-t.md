@@ -16,7 +16,7 @@
         
 ---
 $
-    High demand, this Cell Phones & Smartphones device is available at a discounted price of 131.99120000000002 after a 12% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/265887354594?hash=item3de81f0ee2%3Ag%3A2WoAAOSw3FNdij5j&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Note 9 N960U T-Mobile Verizon Straight Talk Unlocked Boost Total AT&T. The shipping cost is undefined.Product ImageSamsung Note 9 N960U T-Mobile Verizon Straight Talk Unlocked Boost Total AT&TAdditional ImagesSamsung Note 9 N960U T-Mobile Verizon Straight Talk Unlocked Boost Total AT&T, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/265887354594_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_12_0_1/225x225.jpg)
+    Highly rated service, this Cell Phones & Smartphones device is available at a discounted price of 140.7912 after a 12% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/265887354594?hash=item3de81f0ee2%3Ag%3A2WoAAOSw3FNdij5j&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Note 9 N960U T-Mobile Verizon Straight Talk Unlocked Boost Total AT&T. The shipping cost is undefined.Product ImageSamsung Note 9 N960U T-Mobile Verizon Straight Talk Unlocked Boost Total AT&TAdditional ImagesSamsung Note 9 N960U T-Mobile Verizon Straight Talk Unlocked Boost Total AT&T, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/265887354594_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/265887354594_12_0_1/225x225.jpg)
     
     
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 149.99 
+ - Listed Price- 159.99 
 
 
       

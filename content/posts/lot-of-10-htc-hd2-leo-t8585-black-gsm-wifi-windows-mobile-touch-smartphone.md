@@ -2,7 +2,7 @@
       template: SinglePost
       title: lot of 10 htc hd2 leo t8585 black gsm wifi windows mobile touch smartphone
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/exIAAOSw-9xj5Qrb/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Be the best version of yourself Lot Of (10) HTC HD2 Leo - T8585 -Black GSM WiFi Windows Mobile Touch Smartphone - a 2-star Cell Phones & Smartphones device.
+Be the best you can be  Lot Of (10) HTC HD2 Leo - T8585 -Black GSM WiFi Windows Mobile Touch Smartphone - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/115701221725?hash=item1af054895d%3Ag%3AexIAAOSw-9xj5Qrb&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Lot Of (10) HTC HD2 Leo - T8585 -Black GSM WiFi Windows Mobile Touch Smartphone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/exIAAOSw-9xj5Qrb/s-l225.jpg)and the additional images are![Lot Of (10) HTC HD2 Leo - T8585 -Black GSM WiFi Windows Mobile Touch Smartphone](https://i.ebayimg.com/images/g/exIAAOSw-9xj5Qrb/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/115701221725_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115701221725_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115701221725_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115701221725_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115701221725_6_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/115701221725?hash=item1af054895d%3Ag%3Aex
 
       
 
- - Feedback score - 3056 
+ - Feedback score - 3058 
 
 
       

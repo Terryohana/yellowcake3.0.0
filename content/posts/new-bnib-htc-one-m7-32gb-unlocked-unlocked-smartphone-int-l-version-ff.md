@@ -2,7 +2,7 @@
       template: SinglePost
       title: new bnib htc one m7 32gb unlocked unlocked smartphone int l version ff
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/a8QAAOSwNchaSiu6/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Live life to its fullest NEW *BNIB*  HTC One M7 - 32GB - (Unlocked) UNLOCKED Smartphone INT'L VERSION FF - a 3-star Cell Phones & Smartphones device.
+Make memories NEW *BNIB*  HTC One M7 - 32GB - (Unlocked) UNLOCKED Smartphone INT'L VERSION FF - a 2-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/364000707548?hash=item54c02203dc%3Ag%3Aa8QAAOSwNchaSiu6&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the NEW *BNIB*  HTC One M7 - 32GB - (Unlocked) UNLOCKED Smartphone INT'L VERSION FF. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/a8QAAOSwNchaSiu6/s-l225.jpg)and the additional images are![NEW *BNIB*  HTC One M7 - 32GB - (Unlocked) UNLOCKED Smartphone INT'L VERSION FF](https://i.ebayimg.com/images/g/a8QAAOSwNchaSiu6/s-l640.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/364000707548_2_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/364000707548?hash=item54c02203dc%3Ag%3Aa8
 
       
 
- - Feedback score - 179 
+ - Feedback score - 180 
 
 
       

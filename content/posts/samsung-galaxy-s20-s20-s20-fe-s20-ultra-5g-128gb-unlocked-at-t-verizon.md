@@ -16,7 +16,7 @@
         
 ---
 $
-    Proven quality, this Cell Phones & Smartphones device is available at a discounted price of 189.156 after a 12% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/185635641949?hash=item2b38bf1a5d%3Ag%3Ake0AAOSwpJBjW9rM&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Galaxy S20 | S20+ | S20 FE | S20 Ultra 5G 128GB - Unlocked AT&T Verizon. The shipping cost is undefined.Product ImageSamsung Galaxy S20 | S20+ | S20 FE | S20 Ultra 5G 128GB - Unlocked AT&T VerizonAdditional ImagesSamsung Galaxy S20 | S20+ | S20 FE | S20 Ultra 5G 128GB - Unlocked AT&T Verizon, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185635641949_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185635641949_3_0_1/225x225.jpg)
+    Rave reviews, this Cell Phones & Smartphones device is available at a discounted price of 257.957 after a 14% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/185635641949?hash=item2b38bf1a5d%3Ag%3Ake0AAOSwpJBjW9rM&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Galaxy S20 | S20+ | S20 FE | S20 Ultra 5G 128GB - Unlocked AT&T Verizon. The shipping cost is undefined.Product ImageSamsung Galaxy S20 | S20+ | S20 FE | S20 Ultra 5G 128GB - Unlocked AT&T VerizonAdditional ImagesSamsung Galaxy S20 | S20+ | S20 FE | S20 Ultra 5G 128GB - Unlocked AT&T Verizon, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185635641949_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/185635641949_3_0_1/225x225.jpg)
     
     
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 214.95 
+ - Listed Price- 299.95 
 
 
       

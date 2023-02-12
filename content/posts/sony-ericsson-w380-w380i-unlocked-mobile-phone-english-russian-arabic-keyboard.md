@@ -3,8 +3,9 @@
       title: sony ericsson w380 w380i unlocked mobile phone english russian arabic keyboard
       status: Published
       date: '2023-02-12'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/b1sAAOSwYmZXFz1t/s-l225.jpg
-      categories: 
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/b1sAAOSwYmZXFz1t/s-l225.jpg'
+       
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -12,14 +13,12 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-        
+
 ---
 $
+      Introducing th Sony Ericsson W380 W380i Unlocked Mobile Phone English Russian Arabic keyboard from a well-known brand.This Wireless smartphone is sure to be a Eye-catching-item in your home. [Click Here](https://www.ebay.com/itm/333825866010?hash=item4db992791a%3Ag%3Ab1sAAOSwYmZXFz1t&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Ericsson W380 W380i Unlocked Mobile Phone English Russian Arabic keyboard. Shipping cost is undefined.Here is the posting visibly ![Sony Ericsson W380 W380i Unlocked Mobile Phone English Russian Arabic keyboard](https://i.ebayimg.com/thumbs/images/g/b1sAAOSwYmZXFz1t/s-l225.jpg) to check out more postings here... ![Sony Ericsson W380 W380i Unlocked Mobile Phone English Russian Arabic keyboard](https://i.ebayimg.com/images/g/b1sAAOSwYmZXFz1t/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/333825866010_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/333825866010_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/333825866010_4_0_1/225x225.jpg)'
 
-Live life to its fullest Sony Ericsson W380 W380i Unlocked Mobile Phone English Russian Arabic keyboard - a 5-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/333825866010?hash=item4db992791a%3Ag%3Ab1sAAOSwYmZXFz1t&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Sony Ericsson W380 W380i Unlocked Mobile Phone English Russian Arabic keyboard. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/b1sAAOSwYmZXFz1t/s-l225.jpg)and the additional images are![Sony Ericsson W380 W380i Unlocked Mobile Phone English Russian Arabic keyboard](https://i.ebayimg.com/images/g/b1sAAOSwYmZXFz1t/s-l960.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/333825866010_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/333825866010_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/333825866010_4_0_1/225x225.jpg)
-
-
+      
 
  ## Technical Facts 
 
@@ -59,5 +58,4 @@ $[Click Here](https://www.ebay.com/itm/333825866010?hash=item4db992791a%3Ag%3Ab1
 
 
 
-
-
+      -

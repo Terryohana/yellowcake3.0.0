@@ -2,7 +2,7 @@
       template: SinglePost
       title: new samsung galaxy s8 plus g955u 64gb unlocked gsm cdma at t t mobile verizon
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/sD8AAOSwjFleSvaq/s-l225.jpg'
       categories: 
 
@@ -16,7 +16,7 @@
         
 ---
 $
-    Proven quality, this Cell Phones & Smartphones device is available at a discounted price of 161.892 after a 10% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/173966027949?hash=item28812eecad%3Ag%3AsD8AAOSwjFleSvaq&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the NEW Samsung Galaxy S8+ Plus G955U 64GB (Unlocked GSM+CDMA) AT&T T-Mobile Verizon. The shipping cost is undefined.Product ImageNEW Samsung Galaxy S8+ Plus G955U 64GB (Unlocked GSM+CDMA) AT&T T-Mobile VerizonAdditional ImagesNEW Samsung Galaxy S8+ Plus G955U 64GB (Unlocked GSM+CDMA) AT&T T-Mobile Verizon, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/173966027949_2_0_1/225x225.jpg)
+    Proven quality, this Cell Phones & Smartphones device is available at a discounted price of 156.4956 after a 13% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/173966027949?hash=item28812eecad%3Ag%3AsD8AAOSwjFleSvaq&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the NEW Samsung Galaxy S8+ Plus G955U 64GB (Unlocked GSM+CDMA) AT&T T-Mobile Verizon. The shipping cost is undefined.Product ImageNEW Samsung Galaxy S8+ Plus G955U 64GB (Unlocked GSM+CDMA) AT&T T-Mobile VerizonAdditional ImagesNEW Samsung Galaxy S8+ Plus G955U 64GB (Unlocked GSM+CDMA) AT&T T-Mobile Verizon, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/173966027949_2_0_1/225x225.jpg)
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 60042 
+ - Feedback score - 60045 
 
 
       

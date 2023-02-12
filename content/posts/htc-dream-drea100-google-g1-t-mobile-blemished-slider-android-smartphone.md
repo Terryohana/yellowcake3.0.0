@@ -2,10 +2,9 @@
       template: SinglePost
       title: htc dream drea100 google g1 t mobile blemished slider android smartphone
       status: Published
-      date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/410AAOSw89Fjr3Q2/s-l225.jpg'
-       
-
+      date: '2023-02-12'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/7ZYAAOSwBtNjmLEC/s-l225.jpg
+      categories: 
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -13,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th HTC Dream (DREA100) Google G1 - T-Mobile - BLEMISHED - Slider Android Smartphone from a well-known brand.This Holdable hand held device is sure to be a Table-center in your home. [Click Here](https://www.ebay.com/itm/125689353552?hash=item1d43ab5550%3Ag%3A410AAOSw89Fjr3Q2&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the HTC Dream (DREA100) Google G1 - T-Mobile - BLEMISHED - Slider Android Smartphone. Shipping cost is undefined.Here is the posting visibly ![HTC Dream (DREA100) Google G1 - T-Mobile - BLEMISHED - Slider Android Smartphone](https://i.ebayimg.com/thumbs/images/g/410AAOSw89Fjr3Q2/s-l225.jpg) to check out more postings here... ![HTC Dream (DREA100) Google G1 - T-Mobile - BLEMISHED - Slider Android Smartphone](https://i.ebayimg.com/images/g/410AAOSw89Fjr3Q2/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/125689353552_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/125689353552_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/125689353552_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/125689353552_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/125689353552_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/125689353552_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/125689353552_8_0_1/225x225.jpg)'
 
-      
+Be yourself HTC Dream (DREA100) Google G1 - T-Mobile - BLEMISHED - Slider Android Smartphone - a 3-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/134364574491?hash=item1f48c0b31b%3Ag%3A7ZYAAOSwBtNjmLEC&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the HTC Dream (DREA100) Google G1 - T-Mobile - BLEMISHED - Slider Android Smartphone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/7ZYAAOSwBtNjmLEC/s-l225.jpg)and the additional images are![HTC Dream (DREA100) Google G1 - T-Mobile - BLEMISHED - Slider Android Smartphone](https://i.ebayimg.com/images/g/7ZYAAOSwBtNjmLEC/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134364574491_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134364574491_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134364574491_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134364574491_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134364574491_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134364574491_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134364574491_8_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -32,7 +33,7 @@ $
 
       
 
- - Listed Price- 42.00 
+ - Listed Price- 34.99 
 
 
       
@@ -42,7 +43,7 @@ $
 
       
 
- - Feedback score - 1298 
+ - Feedback score - 38601 
 
 
       
@@ -58,4 +59,5 @@ $
 
 
 
-      -
+
+

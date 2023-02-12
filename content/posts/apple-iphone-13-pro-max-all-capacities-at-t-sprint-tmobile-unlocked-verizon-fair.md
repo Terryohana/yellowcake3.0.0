@@ -16,7 +16,7 @@
 ---
 $
 
-Be the best you can be  Apple iPhone 13 Pro Max All Capacities AT&T Sprint TMobile Unlocked Verizon Fair - a 4-star Cell Phones & Smartphones device.
+Be confident Apple iPhone 13 Pro Max All Capacities AT&T Sprint TMobile Unlocked Verizon Fair - a 3-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/284503141857?hash=item423db56de1%3Ag%3A-BAAAOSwCGZhdsW4&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Apple iPhone 13 Pro Max All Capacities AT&T Sprint TMobile Unlocked Verizon Fair. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/-BAAAOSwCGZhdsW4/s-l225.jpg)and the additional images are![Apple iPhone 13 Pro Max All Capacities AT&T Sprint TMobile Unlocked Verizon Fair](https://i.ebayimg.com/images/g/-BAAAOSwCGZhdsW4/s-l1600.jpg)![check vendor page]()
 
 
@@ -33,7 +33,7 @@ $[Click Here](https://www.ebay.com/itm/284503141857?hash=item423db56de1%3Ag%3A-B
 
       
 
- - Listed Price- 909.99 
+ - Listed Price- 739.99 
 
 
       

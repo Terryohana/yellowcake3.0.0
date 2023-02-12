@@ -16,7 +16,7 @@
         
 ---
 $
-    Best value, this Cell Phones & Smartphones device is available at a discounted price of 26.391199999999998 after a 12% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/165934198937?hash=item26a272f099%3Ag%3AD90AAOSws9Zj58%7EN&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the 728.Sony Ericsson G502 Very Rare - For Collectors - Unlocked. The shipping cost is undefined.Product Image728.Sony Ericsson G502 Very Rare - For Collectors - UnlockedAdditional Images728.Sony Ericsson G502 Very Rare - For Collectors - Unlocked, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165934198937_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934198937_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934198937_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934198937_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934198937_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934198937_7_0_1/225x225.jpg)
+    High-performance product, this Cell Phones & Smartphones device is available at a discounted price of 26.391199999999998 after a 12% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/165934198937?hash=item26a272f099%3Ag%3AD90AAOSws9Zj58%7EN&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the 728.Sony Ericsson G502 Very Rare - For Collectors - Unlocked. The shipping cost is undefined.Product Image728.Sony Ericsson G502 Very Rare - For Collectors - UnlockedAdditional Images728.Sony Ericsson G502 Very Rare - For Collectors - Unlocked, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165934198937_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934198937_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934198937_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934198937_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934198937_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934198937_7_0_1/225x225.jpg)
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 1539 
+ - Feedback score - 1540 
 
 
       

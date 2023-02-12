@@ -2,24 +2,23 @@
       template: SinglePost
       title: lg v60 thinq lmv600tm 128gb unlocked smartphone excellent
       status: Published
-      date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/kocAAOSw7ltigtKb/s-l225.jpg
+      date: '2023-02-12'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/kocAAOSw7ltigtKb/s-l225.jpg'
       categories: 
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-      
+
         
 ---
 $
-
-Make a difference LG V60 ThinQ LMV600TM 128GB Unlocked Smartphone Excellent - a 2-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/185319471285?hash=item2b25e6b8b5%3Ag%3AkocAAOSw7ltigtKb&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the LG V60 ThinQ LMV600TM 128GB Unlocked Smartphone Excellent. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/kocAAOSw7ltigtKb/s-l225.jpg)and the additional images are![LG V60 ThinQ LMV600TM 128GB Unlocked Smartphone Excellent](https://i.ebayimg.com/images/g/kocAAOSw7ltigtKb/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185319471285_2_0_1/225x225.jpg)
-
-
+    High-performance product, this Cell Phones & Smartphones device is available at a discounted price of 133.49110000000002 after a 11% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/185319471285?hash=item2b25e6b8b5%3Ag%3AkocAAOSw7ltigtKb&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the LG V60 ThinQ LMV600TM 128GB Unlocked Smartphone Excellent. The shipping cost is undefined.Product ImageLG V60 ThinQ LMV600TM 128GB Unlocked Smartphone ExcellentAdditional ImagesLG V60 ThinQ LMV600TM 128GB Unlocked Smartphone Excellent, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185319471285_2_0_1/225x225.jpg)
+    
+    
 
  ## Technical Facts 
 
@@ -43,7 +42,7 @@ $[Click Here](https://www.ebay.com/itm/185319471285?hash=item2b25e6b8b5%3Ag%3Ako
 
       
 
- - Feedback score - 51699 
+ - Feedback score - 51704 
 
 
       
@@ -58,6 +57,8 @@ $[Click Here](https://www.ebay.com/itm/185319471285?hash=item2b25e6b8b5%3Ag%3Ako
 
 
 
-
-
-
+    
+    
+    
+    
+    

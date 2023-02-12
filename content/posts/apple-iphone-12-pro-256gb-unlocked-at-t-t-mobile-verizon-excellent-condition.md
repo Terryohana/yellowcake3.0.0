@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Apple iPhone 12 Pro 256GB Unlocked AT&T T-Mobile Verizon Excellent Condition from a well-known brand.This well crafted smartphone is sure to be a Decorative-accent in your home. [Click Here](https://www.ebay.com/itm/304194743951?hash=item46d36b6e8f%3Ag%3A61oAAOSwOTZhjWfh&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Apple iPhone 12 Pro 256GB Unlocked AT&T T-Mobile Verizon Excellent Condition. Shipping cost is undefined.Here is the posting visibly ![Apple iPhone 12 Pro 256GB Unlocked AT&T T-Mobile Verizon Excellent Condition](https://i.ebayimg.com/thumbs/images/g/61oAAOSwOTZhjWfh/s-l225.jpg) to check out more postings here... ![Apple iPhone 12 Pro 256GB Unlocked AT&T T-Mobile Verizon Excellent Condition](https://i.ebayimg.com/images/g/61oAAOSwOTZhjWfh/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/304194743951_2_0_1/225x225.jpg)'
+      Introducing th Apple iPhone 12 Pro 256GB Unlocked AT&T T-Mobile Verizon Excellent Condition from a well-known brand.This Light device  is sure to be a Interactive-piece in your home. [Click Here](https://www.ebay.com/itm/304194743951?hash=item46d36b6e8f%3Ag%3A61oAAOSwOTZhjWfh&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Apple iPhone 12 Pro 256GB Unlocked AT&T T-Mobile Verizon Excellent Condition. Shipping cost is undefined.Here is the posting visibly ![Apple iPhone 12 Pro 256GB Unlocked AT&T T-Mobile Verizon Excellent Condition](https://i.ebayimg.com/thumbs/images/g/61oAAOSwOTZhjWfh/s-l225.jpg) to check out more postings here... ![Apple iPhone 12 Pro 256GB Unlocked AT&T T-Mobile Verizon Excellent Condition](https://i.ebayimg.com/images/g/61oAAOSwOTZhjWfh/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/304194743951_2_0_1/225x225.jpg)'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 89818 
+ - Feedback score - 89817 
 
 
       

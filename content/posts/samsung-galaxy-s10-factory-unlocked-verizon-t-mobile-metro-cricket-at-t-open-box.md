@@ -16,8 +16,8 @@
 ---
 $
 
-Be bold Samsung Galaxy S10 Factory Unlocked Verizon T-Mobile Metro Cricket AT&T OPEN BOX - a 2-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/114785092853?hash=item1ab9b984f5%3Ag%3Ah9sAAOSw195giZSO&amdata=enc%3AAQAHAAAA4EHsiYsjV5Uu5a2CACWKwgjCHoUKnrgos245YIRclV8VWODULiNMmPc7dTZ%2BYDDio7NsXrt6F083ju2V4HgmQ53isMBoWKgLjZQt9E8iXyB%2B1itQzVC6QvWXa1vo9jpLvjjPZv04o5d8ERVLwW86Swk%2F2hfz%2FY%2F2KSHrLaaWvqEWMcpvYToYMQqtPW66niZQWHppM%2B6GzymRtr%2FJtg480AP1l6lX6vFaA8Q9unSqn3V8JW86Knkawn9YM4ms%2B68VDNgZnGlm0HX2JH7fIvUx0jJpuiQ4on1yL%2B4%2FS%2FZr6bIW&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Samsung Galaxy S10 Factory Unlocked Verizon T-Mobile Metro Cricket AT&T OPEN BOX. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/h9sAAOSw195giZSO/s-l225.jpg)and the additional images are![Samsung Galaxy S10 Factory Unlocked Verizon T-Mobile Metro Cricket AT&T OPEN BOX](https://i.ebayimg.com/images/g/h9sAAOSw195giZSO/s-l1600.jpg)![check vendor page]()
+Be yourself Samsung Galaxy S10 Factory Unlocked Verizon T-Mobile Metro Cricket AT&T OPEN BOX - a 1-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/114785092853?hash=item1ab9b984f5%3Ag%3Ah9sAAOSw195giZSO&amdata=enc%3AAQAHAAAA4EHsiYsjV5Uu5a2CACWKwgjCHoUKnrgos245YIRclV8VWODULiNMmPc7dTZ%2BYDDio7NsXrt6F083ju2V4HgmQ53isMBoWKgLjZQt9E8iXyB%2B1itQzVC6QvWXa1vo9jpLvhfjx5uNrD4KEsZspPCvYwbO6QIvp%2Bs%2F5WNnmi7w4UmkgNcquOGPz3XnrqesUBACOFC8gJ9EsUGz8TR%2FPpqc70Jcg59Q0QjmQuT6p0nW4Fl4xWFt1vqQ%2BnP4zKcMYpBAm5Vxlw0lO4PhW8pSGM%2BFuX4TNTTfBT%2FVL8CEuRxBMgrd&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Samsung Galaxy S10 Factory Unlocked Verizon T-Mobile Metro Cricket AT&T OPEN BOX. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/h9sAAOSw195giZSO/s-l225.jpg)and the additional images are![Samsung Galaxy S10 Factory Unlocked Verizon T-Mobile Metro Cricket AT&T OPEN BOX](https://i.ebayimg.com/images/g/h9sAAOSw195giZSO/s-l1600.jpg)![check vendor page]()
 
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/114785092853?hash=item1ab9b984f5%3Ag%3Ah9
 
       
 
- - Feedback score - 65855 
+ - Feedback score - 65856 
 
 
       

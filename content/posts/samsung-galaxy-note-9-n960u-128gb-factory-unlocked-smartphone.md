@@ -2,9 +2,10 @@
       template: SinglePost
       title: samsung galaxy note 9 n960u 128gb factory unlocked smartphone
       status: Published
-      date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/zH0AAOSwzp1d8TJ5/s-l225.jpg
-      categories: 
+      date: '2023-02-12'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/zH0AAOSwzp1d8TJ5/s-l225.jpg'
+       
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -12,14 +13,12 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-        
+
 ---
 $
+      Introducing th Samsung Galaxy Note 9 N960U 128GB Factory Unlocked Smartphone from a well-known brand.This Lightweight smartphone is sure to be a Conversation-starter in your home. [Click Here](https://www.ebay.com/itm/325334675201?hash=item4bbf752f01%3Ag%3AzH0AAOSwzp1d8TJ5&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Samsung Galaxy Note 9 N960U 128GB Factory Unlocked Smartphone. Shipping cost is undefined.Here is the posting visibly ![Samsung Galaxy Note 9 N960U 128GB Factory Unlocked Smartphone](https://i.ebayimg.com/thumbs/images/g/zH0AAOSwzp1d8TJ5/s-l225.jpg) to check out more postings here... ![Samsung Galaxy Note 9 N960U 128GB Factory Unlocked Smartphone](https://i.ebayimg.com/images/g/zH0AAOSwzp1d8TJ5/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325334675201_2_0_1/225x225.jpg)'
 
-Make your mark Samsung Galaxy Note 9 N960U 128GB Factory Unlocked Smartphone - a 3-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/325334675201?hash=item4bbf752f01%3Ag%3AzH0AAOSwzp1d8TJ5&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Samsung Galaxy Note 9 N960U 128GB Factory Unlocked Smartphone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/zH0AAOSwzp1d8TJ5/s-l225.jpg)and the additional images are![Samsung Galaxy Note 9 N960U 128GB Factory Unlocked Smartphone](https://i.ebayimg.com/images/g/zH0AAOSwzp1d8TJ5/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325334675201_2_0_1/225x225.jpg)
-
-
+      
 
  ## Technical Facts 
 
@@ -43,7 +42,7 @@ $[Click Here](https://www.ebay.com/itm/325334675201?hash=item4bbf752f01%3Ag%3AzH
 
       
 
- - Feedback score - 10003 
+ - Feedback score - 10010 
 
 
       
@@ -59,5 +58,4 @@ $[Click Here](https://www.ebay.com/itm/325334675201?hash=item4bbf752f01%3Ag%3AzH
 
 
 
-
-
+      -

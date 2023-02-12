@@ -16,7 +16,7 @@
 ---
 $
 
-Be unforgettable Original Sony Ericsson W995 3G WCDMA Mobile Phone - a 3-star Cell Phones & Smartphones device.
+Be on trend Original Sony Ericsson W995 3G WCDMA Mobile Phone - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/385143512461?hash=item59ac579d8d%3Ag%3A8fwAAOSwLR9jNmbX&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Original Sony Ericsson W995 3G WCDMA Mobile Phone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/8fwAAOSwLR9jNmbX/s-l225.jpg)and the additional images are![Original Sony Ericsson W995 3G WCDMA Mobile Phone](https://i.ebayimg.com/images/g/8fwAAOSwLR9jNmbX/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/385143512461_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385143512461_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385143512461_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385143512461_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385143512461_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385143512461_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385143512461_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385143512461_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385143512461_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385143512461_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385143512461_12_0_1/225x225.jpg)
 
 

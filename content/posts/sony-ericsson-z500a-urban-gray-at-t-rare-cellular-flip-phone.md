@@ -16,7 +16,7 @@
 ---
 $
 
-Experience life Sony Ericsson Z500a - Urban Gray ( AT&T ) Rare Cellular Flip Phone - a 4-star Cell Phones & Smartphones device.
+Stay informed Sony Ericsson Z500a - Urban Gray ( AT&T ) Rare Cellular Flip Phone - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/325532494001?hash=item4bcb3fa8b1%3Ag%3Aew8AAOSw%7EVFj6BkB&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Sony Ericsson Z500a - Urban Gray ( AT&T ) Rare Cellular Flip Phone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/ew8AAOSw~VFj6BkB/s-l225.jpg)and the additional images are![Sony Ericsson Z500a - Urban Gray ( AT&T ) Rare Cellular Flip Phone](https://i.ebayimg.com/images/g/ew8AAOSw~VFj6BkB/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325532494001_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325532494001_3_0_1/225x225.jpg)
 
 

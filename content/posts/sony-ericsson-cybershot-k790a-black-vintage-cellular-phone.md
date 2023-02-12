@@ -3,22 +3,23 @@
       title: sony ericsson cybershot k790a black vintage cellular phone
       status: Published
       date: '2023-02-12'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/qxsAAOSwTFRjlSoT/s-l225.jpg'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/qxsAAOSwTFRjlSoT/s-l225.jpg
       categories: 
-
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-
+      
         
 ---
 $
-    Most requested, this Cell Phones & Smartphones device is available at a discounted price of 9.891 after a 10% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/185692924090?hash=item2b3c2928ba%3Ag%3AqxsAAOSwTFRjlSoT&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony Ericsson Cybershot K790a - Black Vintage Cellular Phone. The shipping cost is undefined.Product ImageSony Ericsson Cybershot K790a - Black Vintage Cellular PhoneAdditional ImagesSony Ericsson Cybershot K790a - Black Vintage Cellular Phone, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185692924090_2_0_1/225x225.jpg)
-    
-    
+
+Stay informed Sony Ericsson Cybershot K790a - Black Vintage Cellular Phone - a 3-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/185692924090?hash=item2b3c2928ba%3Ag%3AqxsAAOSwTFRjlSoT&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Sony Ericsson Cybershot K790a - Black Vintage Cellular Phone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/qxsAAOSwTFRjlSoT/s-l225.jpg)and the additional images are![Sony Ericsson Cybershot K790a - Black Vintage Cellular Phone](https://i.ebayimg.com/images/g/qxsAAOSwTFRjlSoT/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/185692924090_2_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -57,8 +58,6 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+
+

@@ -3,8 +3,9 @@
       title: sony ericsson c905 cell phone black unlocked slider classic 3g mobile phone
       status: Published
       date: '2023-02-12'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/gmkAAOSwfIVj5xgC/s-l225.jpg
-      categories: 
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/gmkAAOSwfIVj5xgC/s-l225.jpg'
+       
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -12,14 +13,12 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-        
+
 ---
 $
+      Introducing th Sony Ericsson C905 Cell Phone Black (Unlocked) Slider Classic 3G Mobile Phone from a well-known brand.This Wireless hand held device is sure to be a Center of attention  in your home. [Click Here](https://www.ebay.com/itm/225416722640?hash=item347be238d0%3Ag%3AgmkAAOSwfIVj5xgC&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Ericsson C905 Cell Phone Black (Unlocked) Slider Classic 3G Mobile Phone. Shipping cost is undefined.Here is the posting visibly ![Sony Ericsson C905 Cell Phone Black (Unlocked) Slider Classic 3G Mobile Phone](https://i.ebayimg.com/thumbs/images/g/gmkAAOSwfIVj5xgC/s-l225.jpg) to check out more postings here... ![Sony Ericsson C905 Cell Phone Black (Unlocked) Slider Classic 3G Mobile Phone](https://i.ebayimg.com/images/g/gmkAAOSwfIVj5xgC/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/225416722640_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_12_0_1/225x225.jpg)'
 
-Stay stylish Sony Ericsson C905 Cell Phone Black (Unlocked) Slider Classic 3G Mobile Phone - a 3-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/225416722640?hash=item347be238d0%3Ag%3AgmkAAOSwfIVj5xgC&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Sony Ericsson C905 Cell Phone Black (Unlocked) Slider Classic 3G Mobile Phone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/gmkAAOSwfIVj5xgC/s-l225.jpg)and the additional images are![Sony Ericsson C905 Cell Phone Black (Unlocked) Slider Classic 3G Mobile Phone](https://i.ebayimg.com/images/g/gmkAAOSwfIVj5xgC/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/225416722640_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225416722640_12_0_1/225x225.jpg)
-
-
+      
 
  ## Technical Facts 
 
@@ -59,5 +58,4 @@ $[Click Here](https://www.ebay.com/itm/225416722640?hash=item347be238d0%3Ag%3Agm
 
 
 
-
-
+      -

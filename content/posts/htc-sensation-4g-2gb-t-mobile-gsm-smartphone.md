@@ -2,7 +2,7 @@
       template: SinglePost
       title: htc sensation 4g 2gb t mobile gsm smartphone
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/fQgAAOSwZbpjuLdE/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th HTC Sensation 4G 2GB (T-Mobile) GSM Smartphone from a well-known brand.This Lightweight smartphone is sure to be a Draw-of-attention in your home. [Click Here](https://www.ebay.com/itm/255915243407?hash=item3b95bcb78f%3Ag%3AfQgAAOSwZbpjuLdE&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the HTC Sensation 4G 2GB (T-Mobile) GSM Smartphone. Shipping cost is undefined.Here is the posting visibly ![HTC Sensation 4G 2GB (T-Mobile) GSM Smartphone](https://i.ebayimg.com/thumbs/images/g/fQgAAOSwZbpjuLdE/s-l225.jpg) to check out more postings here... ![HTC Sensation 4G 2GB (T-Mobile) GSM Smartphone](https://i.ebayimg.com/images/g/fQgAAOSwZbpjuLdE/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255915243407_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_10_0_1/225x225.jpg)'
+      Introducing th HTC Sensation 4G 2GB (T-Mobile) GSM Smartphone from a well-known brand.This Miniature smartphone is sure to be a Table-center in your home. [Click Here](https://www.ebay.com/itm/255915243407?hash=item3b95bcb78f%3Ag%3AfQgAAOSwZbpjuLdE&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the HTC Sensation 4G 2GB (T-Mobile) GSM Smartphone. Shipping cost is undefined.Here is the posting visibly ![HTC Sensation 4G 2GB (T-Mobile) GSM Smartphone](https://i.ebayimg.com/thumbs/images/g/fQgAAOSwZbpjuLdE/s-l225.jpg) to check out more postings here... ![HTC Sensation 4G 2GB (T-Mobile) GSM Smartphone](https://i.ebayimg.com/images/g/fQgAAOSwZbpjuLdE/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255915243407_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255915243407_10_0_1/225x225.jpg)'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 960 
+ - Feedback score - 961 
 
 
       

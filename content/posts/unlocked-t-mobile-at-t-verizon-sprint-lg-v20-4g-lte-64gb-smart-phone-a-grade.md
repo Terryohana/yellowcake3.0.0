@@ -2,7 +2,7 @@
       template: SinglePost
       title: unlocked t mobile at t verizon sprint lg v20 4g lte 64gb smart phone a grade
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/KKwAAOSwtZxhLA1h/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th UNLOCKED / T-Mobile AT&T Verizon Sprint LG V20 4G LTE 64GB Smart Phone *A GRADE from a well-known brand.This Portable hand held device is sure to be a Conversation-center in your home. [Click Here](https://www.ebay.com/itm/384890617437?hash=item599d44be5d%3Ag%3AKKwAAOSwtZxhLA1h&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the UNLOCKED / T-Mobile AT&T Verizon Sprint LG V20 4G LTE 64GB Smart Phone *A GRADE. Shipping cost is undefined.Here is the posting visibly ![UNLOCKED / T-Mobile AT&T Verizon Sprint LG V20 4G LTE 64GB Smart Phone *A GRADE](https://i.ebayimg.com/thumbs/images/g/KKwAAOSwtZxhLA1h/s-l225.jpg) to check out more postings here... ![UNLOCKED / T-Mobile AT&T Verizon Sprint LG V20 4G LTE 64GB Smart Phone *A GRADE](https://i.ebayimg.com/images/g/KKwAAOSwtZxhLA1h/s-l640.jpg), ![check vendor page]()'
+      Introducing th UNLOCKED / T-Mobile AT&T Verizon Sprint LG V20 4G LTE 64GB Smart Phone *A GRADE from a well-known brand.This Convenient hand held device is sure to be a Spotlight-item in your home. [Click Here](https://www.ebay.com/itm/384890617437?hash=item599d44be5d%3Ag%3AKKwAAOSwtZxhLA1h&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the UNLOCKED / T-Mobile AT&T Verizon Sprint LG V20 4G LTE 64GB Smart Phone *A GRADE. Shipping cost is undefined.Here is the posting visibly ![UNLOCKED / T-Mobile AT&T Verizon Sprint LG V20 4G LTE 64GB Smart Phone *A GRADE](https://i.ebayimg.com/thumbs/images/g/KKwAAOSwtZxhLA1h/s-l225.jpg) to check out more postings here... ![UNLOCKED / T-Mobile AT&T Verizon Sprint LG V20 4G LTE 64GB Smart Phone *A GRADE](https://i.ebayimg.com/images/g/KKwAAOSwtZxhLA1h/s-l640.jpg), ![check vendor page]()'
 
       
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 74.80 
+ - Listed Price- 72.20 
 
 
       
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 61759 
+ - Feedback score - 61762 
 
 
       

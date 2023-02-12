@@ -2,7 +2,7 @@
       template: SinglePost
       title: htc droid eris verizon wireless android smart cell phone 3g adr6200 grade b
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/VAsAAOSwY29jxvQs/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Seize the day HTC Droid Eris Verizon Wireless Android Smart Cell Phone 3G ADR6200 Grade B - a 5-star Cell Phones & Smartphones device.
+Be bold HTC Droid Eris Verizon Wireless Android Smart Cell Phone 3G ADR6200 Grade B - a 2-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/403974830507?hash=item5e0ec6b9ab%3Ag%3AVAsAAOSwY29jxvQs&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the HTC Droid Eris Verizon Wireless Android Smart Cell Phone 3G ADR6200 Grade B. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/VAsAAOSwY29jxvQs/s-l225.jpg)and the additional images are![HTC Droid Eris Verizon Wireless Android Smart Cell Phone 3G ADR6200 Grade B](https://i.ebayimg.com/images/g/VAsAAOSwY29jxvQs/s-l960.jpg)![check vendor page]()
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/403974830507?hash=item5e0ec6b9ab%3Ag%3AVA
 
       
 
- - Feedback score - 444913 
+ - Feedback score - 444954 
 
 
       

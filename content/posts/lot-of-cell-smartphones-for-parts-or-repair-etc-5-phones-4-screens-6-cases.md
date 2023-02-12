@@ -2,7 +2,7 @@
       template: SinglePost
       title: lot of cell smartphones for parts or repair etc 5 phones 4 screens 6 cases
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/m4gAAOSwR4Bj4W1z/s-l225.jpg'
       categories: 
 
@@ -16,7 +16,7 @@
         
 ---
 $
-    Customer satisfaction, this Cell Phones & Smartphones device is available at a discounted price of 52.1913 after a 13% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/155396405412?hash=item242e58f8a4%3Ag%3Am4gAAOSwR4Bj4W1z&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Lot of Cell& Smartphones  For Parts Or Repair Etc 5 Phones- 4 Screens 6 Cases. The shipping cost is undefined.Product ImageLot of Cell& Smartphones  For Parts Or Repair Etc 5 Phones- 4 Screens 6 CasesAdditional ImagesLot of Cell& Smartphones  For Parts Or Repair Etc 5 Phones- 4 Screens 6 Cases, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/155396405412_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155396405412_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155396405412_4_0_1/225x225.jpg)
+    Widely accepted, this Cell Phones & Smartphones device is available at a discounted price of 53.991 after a 10% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/155396405412?hash=item242e58f8a4%3Ag%3Am4gAAOSwR4Bj4W1z&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Lot of Cell& Smartphones  For Parts Or Repair Etc 5 Phones- 4 Screens 6 Cases. The shipping cost is undefined.Product ImageLot of Cell& Smartphones  For Parts Or Repair Etc 5 Phones- 4 Screens 6 CasesAdditional ImagesLot of Cell& Smartphones  For Parts Or Repair Etc 5 Phones- 4 Screens 6 Cases, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/155396405412_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155396405412_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155396405412_4_0_1/225x225.jpg)
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 1538 
+ - Feedback score - 1540 
 
 
       

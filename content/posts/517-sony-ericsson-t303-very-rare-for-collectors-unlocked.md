@@ -16,7 +16,7 @@
         
 ---
 $
-    Unbeatable value, this Cell Phones & Smartphones device is available at a discounted price of 21.4914 after a 14% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/165934025032?hash=item26a2704948%3Ag%3At90AAOSwj3pj56aG&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the 517.Sony Ericsson T303 Very Rare - For Collectors - Unlocked. The shipping cost is undefined.Product Image517.Sony Ericsson T303 Very Rare - For Collectors - UnlockedAdditional Images517.Sony Ericsson T303 Very Rare - For Collectors - Unlocked, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165934025032_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934025032_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934025032_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934025032_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934025032_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934025032_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934025032_8_0_1/225x225.jpg)
+    Industry standard, this Cell Phones & Smartphones device is available at a discounted price of 21.4914 after a 14% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/165934025032?hash=item26a2704948%3Ag%3At90AAOSwj3pj56aG&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the 517.Sony Ericsson T303 Very Rare - For Collectors - Unlocked. The shipping cost is undefined.Product Image517.Sony Ericsson T303 Very Rare - For Collectors - UnlockedAdditional Images517.Sony Ericsson T303 Very Rare - For Collectors - Unlocked, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165934025032_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934025032_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934025032_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934025032_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934025032_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934025032_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165934025032_8_0_1/225x225.jpg)
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 1539 
+ - Feedback score - 1540 
 
 
       
