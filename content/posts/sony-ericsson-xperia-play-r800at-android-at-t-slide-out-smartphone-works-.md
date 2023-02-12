@@ -3,9 +3,8 @@
       title: sony ericsson xperia play r800at android at t slide out smartphone works 
       status: Published
       date: '2023-02-12'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/nWMAAOSw14ZjkKyQ/s-l225.jpg'
-       
-
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/nWMAAOSw14ZjkKyQ/s-l225.jpg
+      categories: 
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -13,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th Sony Ericsson Xperia PLAY (R800at) Android (AT&T) Slide-Out Smartphone - Works! from a well-known brand.This well crafted smartphone is sure to be a Display-center in your home. [Click Here](https://www.ebay.com/itm/144844478687?hash=item21b96758df%3Ag%3AnWMAAOSw14ZjkKyQ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Ericsson Xperia PLAY (R800at) Android (AT&T) Slide-Out Smartphone - Works!. Shipping cost is undefined.Here is the posting visibly ![Sony Ericsson Xperia PLAY (R800at) Android (AT&T) Slide-Out Smartphone - Works!](https://i.ebayimg.com/thumbs/images/g/nWMAAOSw14ZjkKyQ/s-l225.jpg) to check out more postings here... ![Sony Ericsson Xperia PLAY (R800at) Android (AT&T) Slide-Out Smartphone - Works!](https://i.ebayimg.com/images/g/nWMAAOSw14ZjkKyQ/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144844478687_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_12_0_1/225x225.jpg)'
 
-      
+Stay connected with Sony Ericsson Xperia PLAY (R800at) Android (AT&T) Slide-Out Smartphone - Works! - a 1-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/144844478687?hash=item21b96758df%3Ag%3AnWMAAOSw14ZjkKyQ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Sony Ericsson Xperia PLAY (R800at) Android (AT&T) Slide-Out Smartphone - Works!. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/nWMAAOSw14ZjkKyQ/s-l225.jpg)and the additional images are![Sony Ericsson Xperia PLAY (R800at) Android (AT&T) Slide-Out Smartphone - Works!](https://i.ebayimg.com/images/g/nWMAAOSw14ZjkKyQ/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144844478687_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144844478687_12_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -58,4 +59,5 @@ $
 
 
 
-      -
+
+

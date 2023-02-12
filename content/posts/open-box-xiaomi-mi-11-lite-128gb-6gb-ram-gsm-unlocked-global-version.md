@@ -2,7 +2,7 @@
       template: SinglePost
       title: open box xiaomi mi 11 lite 128gb 6gb ram gsm unlocked global version
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/TlYAAOSwKARhQYmn/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Open Box Xiaomi Mi 11 Lite 128GB 6GB RAM GSM Unlocked Global Version from a well-known brand.This Convenient size hand held device is sure to be a Point of attraction  in your home. [Click Here](https://www.ebay.com/itm/304175007528?hash=item46d23e4728%3Ag%3ATlYAAOSwKARhQYmn&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Open Box Xiaomi Mi 11 Lite 128GB 6GB RAM GSM Unlocked Global Version. Shipping cost is undefined.Here is the posting visibly ![Open Box Xiaomi Mi 11 Lite 128GB 6GB RAM GSM Unlocked Global Version](https://i.ebayimg.com/thumbs/images/g/TlYAAOSwKARhQYmn/s-l225.jpg) to check out more postings here... ![Open Box Xiaomi Mi 11 Lite 128GB 6GB RAM GSM Unlocked Global Version](https://i.ebayimg.com/images/g/TlYAAOSwKARhQYmn/s-l1200.jpg), ![check vendor page]()'
+      Introducing th Open Box Xiaomi Mi 11 Lite 128GB 6GB RAM GSM Unlocked Global Version from a well-known brand.This Convenient size smartphone is sure to be a Eye-catcher in your home. [Click Here](https://www.ebay.com/itm/304175007528?hash=item46d23e4728%3Ag%3ATlYAAOSwKARhQYmn&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Open Box Xiaomi Mi 11 Lite 128GB 6GB RAM GSM Unlocked Global Version. Shipping cost is undefined.Here is the posting visibly ![Open Box Xiaomi Mi 11 Lite 128GB 6GB RAM GSM Unlocked Global Version](https://i.ebayimg.com/thumbs/images/g/TlYAAOSwKARhQYmn/s-l225.jpg) to check out more postings here... ![Open Box Xiaomi Mi 11 Lite 128GB 6GB RAM GSM Unlocked Global Version](https://i.ebayimg.com/images/g/TlYAAOSwKARhQYmn/s-l1200.jpg), ![check vendor page]()'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 26803 
+ - Feedback score - 26805 
 
 
       

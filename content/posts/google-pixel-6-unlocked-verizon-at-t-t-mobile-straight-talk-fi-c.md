@@ -16,7 +16,7 @@
 ---
 $
 
-Be the life of the party Google Pixel 6 Unlocked, Verizon, AT&T, T-Mobile, Straight Talk Fi C - a 4-star Cell Phones & Smartphones device.
+Stay up to date Google Pixel 6 Unlocked, Verizon, AT&T, T-Mobile, Straight Talk Fi C - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/195380745866?hash=item2d7d99968a%3Ag%3ArSgAAOSwspNi-nzA&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Google Pixel 6 Unlocked, Verizon, AT&T, T-Mobile, Straight Talk Fi C. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/rSgAAOSwspNi-nzA/s-l225.jpg)and the additional images are![Google Pixel 6 Unlocked, Verizon, AT&T, T-Mobile, Straight Talk Fi C](https://i.ebayimg.com/images/g/rSgAAOSwspNi-nzA/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195380745866_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195380745866_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195380745866_4_0_1/225x225.jpg)
 
 
@@ -33,7 +33,7 @@ $[Click Here](https://www.ebay.com/itm/195380745866?hash=item2d7d99968a%3Ag%3ArS
 
       
 
- - Listed Price- 200.00 
+ - Listed Price- 169.00 
 
 
       

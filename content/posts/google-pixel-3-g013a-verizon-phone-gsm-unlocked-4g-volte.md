@@ -3,9 +3,8 @@
       title: google pixel 3 g013a verizon phone gsm unlocked 4g volte
       status: Published
       date: '2023-02-12'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/sqIAAOSwTSNjReQH/s-l225.jpg'
-       
-
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/sqIAAOSwTSNjReQH/s-l225.jpg
+      categories: 
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -13,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th Google Pixel 3 G013A - (Verizon) Phone GSM Unlocked 4G VoLTE from a well-known brand.This Convenient device  is sure to be a Spotlight-item in your home. [Click Here](https://www.ebay.com/itm/115561463090?hash=item1ae7fffd32%3Ag%3AsqIAAOSwTSNjReQH&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Google Pixel 3 G013A - (Verizon) Phone GSM Unlocked 4G VoLTE. Shipping cost is undefined.Here is the posting visibly ![Google Pixel 3 G013A - (Verizon) Phone GSM Unlocked 4G VoLTE](https://i.ebayimg.com/thumbs/images/g/sqIAAOSwTSNjReQH/s-l225.jpg) to check out more postings here... ![Google Pixel 3 G013A - (Verizon) Phone GSM Unlocked 4G VoLTE](https://i.ebayimg.com/images/g/sqIAAOSwTSNjReQH/s-l1200.jpg), ![check vendor page]()'
 
-      
+Be on trend Google Pixel 3 G013A - (Verizon) Phone GSM Unlocked 4G VoLTE - a 3-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/115561463090?hash=item1ae7fffd32%3Ag%3AsqIAAOSwTSNjReQH&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Google Pixel 3 G013A - (Verizon) Phone GSM Unlocked 4G VoLTE. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/sqIAAOSwTSNjReQH/s-l225.jpg)and the additional images are![Google Pixel 3 G013A - (Verizon) Phone GSM Unlocked 4G VoLTE](https://i.ebayimg.com/images/g/sqIAAOSwTSNjReQH/s-l960.jpg)![check vendor page]()
+
+
 
  ## Technical Facts 
 
@@ -32,7 +33,7 @@ $
 
       
 
- - Listed Price- 129.99 
+ - Listed Price- 89.99 
 
 
       
@@ -58,4 +59,5 @@ $
 
 
 
-      -
+
+

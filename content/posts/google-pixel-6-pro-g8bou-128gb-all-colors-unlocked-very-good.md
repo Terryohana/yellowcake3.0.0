@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Google Pixel 6 Pro - G8BOU - 128GB - All Colors - (Unlocked) - Very Good from a well-known brand.This Miniature smartphone is sure to be a Decorative-accent in your home. [Click Here](https://www.ebay.com/itm/175486244745?hash=item28dbcb9789%3Ag%3AmaAAAOSwtWBi6Slo&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Google Pixel 6 Pro - G8BOU - 128GB - All Colors - (Unlocked) - Very Good. Shipping cost is undefined.Here is the posting visibly ![Google Pixel 6 Pro - G8BOU - 128GB - All Colors - (Unlocked) - Very Good](https://i.ebayimg.com/thumbs/images/g/maAAAOSwtWBi6Slo/s-l225.jpg) to check out more postings here... ![Google Pixel 6 Pro - G8BOU - 128GB - All Colors - (Unlocked) - Very Good](https://i.ebayimg.com/images/g/maAAAOSwtWBi6Slo/s-l640.jpg), ![check vendor page]()'
+      Introducing th Google Pixel 6 Pro - G8BOU - 128GB - All Colors - (Unlocked) - Very Good from a well-known brand.This Miniature smartphone is sure to be a Main-event in your home. [Click Here](https://www.ebay.com/itm/175486244745?hash=item28dbcb9789%3Ag%3AmaAAAOSwtWBi6Slo&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Google Pixel 6 Pro - G8BOU - 128GB - All Colors - (Unlocked) - Very Good. Shipping cost is undefined.Here is the posting visibly ![Google Pixel 6 Pro - G8BOU - 128GB - All Colors - (Unlocked) - Very Good](https://i.ebayimg.com/thumbs/images/g/maAAAOSwtWBi6Slo/s-l225.jpg) to check out more postings here... ![Google Pixel 6 Pro - G8BOU - 128GB - All Colors - (Unlocked) - Very Good](https://i.ebayimg.com/images/g/maAAAOSwtWBi6Slo/s-l640.jpg), ![check vendor page]()'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 121889 
+ - Feedback score - 121893 
 
 
       

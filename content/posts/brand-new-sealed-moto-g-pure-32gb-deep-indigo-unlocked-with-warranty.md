@@ -2,7 +2,7 @@
       template: SinglePost
       title: brand new sealed moto g pure 32gb deep indigo unlocked with warranty
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/qMgAAOSwYTxjf~WZ/s-l225.jpg'
       categories: 
 
@@ -16,7 +16,7 @@
         
 ---
 $
-    User-tested, this Cell Phones & Smartphones device is available at a discounted price of 84.55 after a 11% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/115588700545?hash=item1ae99f9981%3Ag%3AqMgAAOSwYTxjf%7EWZ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Brand New Sealed Moto G Pure, 32GB,Deep Indigo (UNLOCKED) With Warranty. The shipping cost is undefined.Product ImageBrand New Sealed Moto G Pure, 32GB,Deep Indigo (UNLOCKED) With WarrantyAdditional ImagesBrand New Sealed Moto G Pure, 32GB,Deep Indigo (UNLOCKED) With Warranty, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/115588700545_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115588700545_3_0_1/225x225.jpg)
+    User-approved, this Cell Phones & Smartphones device is available at a discounted price of 83.6 after a 12% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/115588700545?hash=item1ae99f9981%3Ag%3AqMgAAOSwYTxjf%7EWZ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Brand New Sealed Moto G Pure, 32GB,Deep Indigo (UNLOCKED) With Warranty. The shipping cost is undefined.Product ImageBrand New Sealed Moto G Pure, 32GB,Deep Indigo (UNLOCKED) With WarrantyAdditional ImagesBrand New Sealed Moto G Pure, 32GB,Deep Indigo (UNLOCKED) With Warranty, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/115588700545_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/115588700545_3_0_1/225x225.jpg)
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 1431 
+ - Feedback score - 1432 
 
 
       

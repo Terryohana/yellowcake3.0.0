@@ -3,9 +3,8 @@
       title: samsung galaxy z flip3 5g sm f711u1 128gb 256gb factory unlocked o b 
       status: Published
       date: '2023-02-12'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/LK4AAOSwpf5jfUip/s-l225.jpg'
-       
-
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/LK4AAOSwpf5jfUip/s-l225.jpg
+      categories: 
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -13,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th SAMSUNG GALAXY Z FLIP3 5G SM-F711U1 128GB │ 256GB (FACTORY UNLOCKED) ⚫️⚪️🟣❖O/B❖ from a well-known brand.This Portable smartphone is sure to be a Conversation-starter in your home. [Click Here](https://www.ebay.com/itm/325435097405?hash=item4bc571813d%3Ag%3ALK4AAOSwpf5jfUip&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the SAMSUNG GALAXY Z FLIP3 5G SM-F711U1 128GB │ 256GB (FACTORY UNLOCKED) ⚫️⚪️🟣❖O/B❖. Shipping cost is undefined.Here is the posting visibly ![SAMSUNG GALAXY Z FLIP3 5G SM-F711U1 128GB │ 256GB (FACTORY UNLOCKED) ⚫️⚪️🟣❖O/B❖](https://i.ebayimg.com/thumbs/images/g/LK4AAOSwpf5jfUip/s-l225.jpg) to check out more postings here... ![SAMSUNG GALAXY Z FLIP3 5G SM-F711U1 128GB │ 256GB (FACTORY UNLOCKED) ⚫️⚪️🟣❖O/B❖](https://i.ebayimg.com/images/g/LK4AAOSwpf5jfUip/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325435097405_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325435097405_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325435097405_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325435097405_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325435097405_6_0_1/225x225.jpg)'
 
-      
+Be fashionable SAMSUNG GALAXY Z FLIP3 5G SM-F711U1 128GB │ 256GB (FACTORY UNLOCKED) ⚫️⚪️🟣❖O/B❖ - a 1-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/325435097405?hash=item4bc571813d%3Ag%3ALK4AAOSwpf5jfUip&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the SAMSUNG GALAXY Z FLIP3 5G SM-F711U1 128GB │ 256GB (FACTORY UNLOCKED) ⚫️⚪️🟣❖O/B❖. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/LK4AAOSwpf5jfUip/s-l225.jpg)and the additional images are![SAMSUNG GALAXY Z FLIP3 5G SM-F711U1 128GB │ 256GB (FACTORY UNLOCKED) ⚫️⚪️🟣❖O/B❖](https://i.ebayimg.com/images/g/LK4AAOSwpf5jfUip/s-l640.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325435097405_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325435097405_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325435097405_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325435097405_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325435097405_6_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -58,4 +59,5 @@ $
 
 
 
-      -
+
+

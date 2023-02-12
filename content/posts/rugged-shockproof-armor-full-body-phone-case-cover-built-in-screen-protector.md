@@ -2,7 +2,7 @@
       template: SinglePost
       title: rugged shockproof armor full body phone case cover built in screen protector
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/TwcAAOSwm11eArqj/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Be confident RUGGED SHOCKPROOF ARMOR Full Body Phone Case Cover + BUILT IN SCREEN PROTECTOR - a 1-star Cases, Covers & Skins device.
+Live life on the edge RUGGED SHOCKPROOF ARMOR Full Body Phone Case Cover + BUILT IN SCREEN PROTECTOR - a 4-star Cases, Covers & Skins device.
 $[Click Here](https://www.ebay.com/itm/124022338828?hash=item1ce04eb50c%3Ag%3ATwcAAOSwm11eArqj&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the RUGGED SHOCKPROOF ARMOR Full Body Phone Case Cover + BUILT IN SCREEN PROTECTOR. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/TwcAAOSwm11eArqj/s-l225.jpg)and the additional images are![RUGGED SHOCKPROOF ARMOR Full Body Phone Case Cover + BUILT IN SCREEN PROTECTOR](https://i.ebayimg.com/images/g/TwcAAOSwm11eArqj/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/124022338828_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124022338828_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124022338828_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124022338828_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124022338828_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124022338828_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124022338828_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124022338828_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124022338828_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124022338828_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/124022338828_12_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/124022338828?hash=item1ce04eb50c%3Ag%3ATw
 
       
 
- - Feedback score - 24519 
+ - Feedback score - 24523 
 
 
       

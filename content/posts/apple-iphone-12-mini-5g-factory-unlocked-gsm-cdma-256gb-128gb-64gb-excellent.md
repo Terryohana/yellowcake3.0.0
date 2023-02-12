@@ -3,9 +3,8 @@
       title: apple iphone 12 mini 5g factory unlocked gsm cdma 256gb 128gb 64gb excellent
       status: Published
       date: '2023-02-12'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/qroAAOSwIPhgy8go/s-l225.jpg'
-       
-
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/qroAAOSwIPhgy8go/s-l225.jpg
+      categories: 
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -13,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th Apple iPhone 12 mini (5G) Factory Unlocked GSM+CDMA 256GB 128GB |64GB Excellent from a well-known brand.This Hand-held device  is sure to be a conversation piece in your home. [Click Here](https://www.ebay.com/itm/363710688827?hash=item54aed8ae3b%3Ag%3AqroAAOSwIPhgy8go&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Apple iPhone 12 mini (5G) Factory Unlocked GSM+CDMA 256GB 128GB |64GB Excellent. Shipping cost is undefined.Here is the posting visibly ![Apple iPhone 12 mini (5G) Factory Unlocked GSM+CDMA 256GB 128GB |64GB Excellent](https://i.ebayimg.com/thumbs/images/g/qroAAOSwIPhgy8go/s-l225.jpg) to check out more postings here... ![Apple iPhone 12 mini (5G) Factory Unlocked GSM+CDMA 256GB 128GB |64GB Excellent](https://i.ebayimg.com/images/g/qroAAOSwIPhgy8go/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/363710688827_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_12_0_1/225x225.jpg)'
 
-      
+Be the best version of yourself Apple iPhone 12 mini (5G) Factory Unlocked GSM+CDMA 256GB 128GB |64GB Excellent - a 4-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/363710688827?hash=item54aed8ae3b%3Ag%3AqroAAOSwIPhgy8go&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Apple iPhone 12 mini (5G) Factory Unlocked GSM+CDMA 256GB 128GB |64GB Excellent. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/qroAAOSwIPhgy8go/s-l225.jpg)and the additional images are![Apple iPhone 12 mini (5G) Factory Unlocked GSM+CDMA 256GB 128GB |64GB Excellent](https://i.ebayimg.com/images/g/qroAAOSwIPhgy8go/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/363710688827_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/363710688827_12_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -32,7 +33,7 @@ $
 
       
 
- - Listed Price- 299.88 
+ - Listed Price- 309.88 
 
 
       
@@ -58,4 +59,5 @@ $
 
 
 
-      -
+
+

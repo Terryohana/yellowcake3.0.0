@@ -2,7 +2,7 @@
       template: SinglePost
       title: used xiaomi mi mix 2 648gb 4gb dual sim factory unlocked
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/bycAAOSwb6tj2pwa/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th USED Xiaomi Mi Mix 2 648GB +4GB Dual SIM  Factory Unlocked from a well-known brand.This Mobile device device  is sure to be a Point of attraction  in your home. [Click Here](https://www.ebay.com/itm/304789649248?hash=item46f6e0f760%3Ag%3AbycAAOSwb6tj2pwa&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the USED Xiaomi Mi Mix 2 648GB +4GB Dual SIM  Factory Unlocked. Shipping cost is undefined.Here is the posting visibly ![USED Xiaomi Mi Mix 2 648GB +4GB Dual SIM  Factory Unlocked](https://i.ebayimg.com/thumbs/images/g/bycAAOSwb6tj2pwa/s-l225.jpg) to check out more postings here... ![USED Xiaomi Mi Mix 2 648GB +4GB Dual SIM  Factory Unlocked](https://i.ebayimg.com/images/g/bycAAOSwb6tj2pwa/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/304789649248_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/304789649248_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/304789649248_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/304789649248_5_0_1/225x225.jpg)'
+      Introducing th USED Xiaomi Mi Mix 2 648GB +4GB Dual SIM  Factory Unlocked from a well-known brand.This Holdable smartphone is sure to be a Point-of-interest in your home. [Click Here](https://www.ebay.com/itm/304789649248?hash=item46f6e0f760%3Ag%3AbycAAOSwb6tj2pwa&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the USED Xiaomi Mi Mix 2 648GB +4GB Dual SIM  Factory Unlocked. Shipping cost is undefined.Here is the posting visibly ![USED Xiaomi Mi Mix 2 648GB +4GB Dual SIM  Factory Unlocked](https://i.ebayimg.com/thumbs/images/g/bycAAOSwb6tj2pwa/s-l225.jpg) to check out more postings here... ![USED Xiaomi Mi Mix 2 648GB +4GB Dual SIM  Factory Unlocked](https://i.ebayimg.com/images/g/bycAAOSwb6tj2pwa/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/304789649248_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/304789649248_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/304789649248_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/304789649248_5_0_1/225x225.jpg)'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 26803 
+ - Feedback score - 26805 
 
 
       

@@ -3,8 +3,8 @@
       title: htc one m8 32gb 0p6b120 at t smartphone
       status: Published
       date: '2023-02-12'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/Mx0AAOSwE5Rj4AKB/s-l225.jpg'
-       
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/TooAAOSwSWhj4Afp/s-l225.jpg'
+      categories: 
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -12,13 +12,13 @@
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-      
 
+        
 ---
 $
-      Introducing th HTC One M8 32GB 0P6B120 (AT&T) Smartphone from a well-known brand.This Lightweight hand held device is sure to be a Design-piece in your home. [Click Here](https://www.ebay.com/itm/165924312260?hash=item26a1dc14c4%3Ag%3AMx0AAOSwE5Rj4AKB&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the HTC One M8 32GB 0P6B120 (AT&T) Smartphone. Shipping cost is undefined.Here is the posting visibly ![HTC One M8 32GB 0P6B120 (AT&T) Smartphone](https://i.ebayimg.com/thumbs/images/g/Mx0AAOSwE5Rj4AKB/s-l225.jpg) to check out more postings here... ![HTC One M8 32GB 0P6B120 (AT&T) Smartphone](https://i.ebayimg.com/images/g/Mx0AAOSwE5Rj4AKB/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165924312260_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165924312260_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165924312260_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165924312260_5_0_1/225x225.jpg)'
-
-      
+    Featured in media, this Cell Phones & Smartphones device is available at a discounted price of 21.7413 after a 13% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/165924337388?hash=item26a1dc76ec%3Ag%3ATooAAOSwSWhj4Afp&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the HTC One M8 32GB 0P6B120 (AT&T) Smartphone. The shipping cost is undefined.Product ImageHTC One M8 32GB 0P6B120 (AT&T) SmartphoneAdditional ImagesHTC One M8 32GB 0P6B120 (AT&T) Smartphone, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165924337388_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165924337388_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165924337388_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165924337388_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165924337388_6_0_1/225x225.jpg)
+    
+    
 
  ## Technical Facts 
 
@@ -57,5 +57,8 @@ $
 
 
 
-
-      -
+    
+    
+    
+    
+    

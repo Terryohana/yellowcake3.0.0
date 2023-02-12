@@ -16,7 +16,7 @@
 ---
 $
 
-Be yourself New *UNOPENDED* Sony Xperia XZ Premium G8141 64GB GLOBAL Unlocked Smartphone SF - a 4-star Cell Phones & Smartphones device.
+Live life to its fullest New *UNOPENDED* Sony Xperia XZ Premium G8141 64GB GLOBAL Unlocked Smartphone SF - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/144747644445?hash=item21b3a1c61d%3Ag%3AHVoAAOSwXm5jORRo&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the New *UNOPENDED* Sony Xperia XZ Premium G8141 64GB GLOBAL Unlocked Smartphone SF. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/HVoAAOSwXm5jORRo/s-l225.jpg)and the additional images are![New *UNOPENDED* Sony Xperia XZ Premium G8141 64GB GLOBAL Unlocked Smartphone SF](https://i.ebayimg.com/images/g/HVoAAOSwXm5jORRo/s-l1600.jpg)![check vendor page]()
 
 

@@ -2,24 +2,23 @@
       template: SinglePost
       title: htc one m8 htc6525l 32gb gray verizon smartphone clean imei 58118
       status: Published
-      date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/AV0AAOSwe6RiRyw7/s-l225.jpg
+      date: '2023-02-12'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/AV0AAOSwe6RiRyw7/s-l225.jpg'
       categories: 
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-      
+
         
 ---
 $
-
-Be inspired HTC One M8 (HTC6525L) 32GB - Gray (Verizon) Smartphone - Clean IMEI - 58118 - a 5-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/134081302495?hash=item1f37de4fdf%3Ag%3AAV0AAOSwe6RiRyw7&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the HTC One M8 (HTC6525L) 32GB - Gray (Verizon) Smartphone - Clean IMEI - 58118. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/AV0AAOSwe6RiRyw7/s-l225.jpg)and the additional images are![HTC One M8 (HTC6525L) 32GB - Gray (Verizon) Smartphone - Clean IMEI - 58118](https://i.ebayimg.com/images/g/AV0AAOSwe6RiRyw7/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134081302495_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134081302495_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134081302495_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134081302495_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134081302495_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134081302495_7_0_1/225x225.jpg)
-
-
+    Highly recommended, this Cell Phones & Smartphones device is available at a discounted price of 23.481299999999997 after a 13% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/134081302495?hash=item1f37de4fdf%3Ag%3AAV0AAOSwe6RiRyw7&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the HTC One M8 (HTC6525L) 32GB - Gray (Verizon) Smartphone - Clean IMEI - 58118. The shipping cost is undefined.Product ImageHTC One M8 (HTC6525L) 32GB - Gray (Verizon) Smartphone - Clean IMEI - 58118Additional ImagesHTC One M8 (HTC6525L) 32GB - Gray (Verizon) Smartphone - Clean IMEI - 58118, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134081302495_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134081302495_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134081302495_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134081302495_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134081302495_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134081302495_7_0_1/225x225.jpg)
+    
+    
 
  ## Technical Facts 
 
@@ -43,7 +42,7 @@ $[Click Here](https://www.ebay.com/itm/134081302495?hash=item1f37de4fdf%3Ag%3AAV
 
       
 
- - Feedback score - 38593 
+ - Feedback score - 38601 
 
 
       
@@ -58,6 +57,8 @@ $[Click Here](https://www.ebay.com/itm/134081302495?hash=item1f37de4fdf%3Ag%3AAV
 
 
 
-
-
-
+    
+    
+    
+    
+    

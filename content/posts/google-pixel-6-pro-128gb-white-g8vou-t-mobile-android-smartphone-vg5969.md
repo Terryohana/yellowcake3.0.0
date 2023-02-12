@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Google Pixel 6 Pro 128GB White G8VOU (T-Mobile) Android Smartphone VG5969 from a well-known brand.This Miniature hand held device is sure to be a Spotlight-item in your home. [Click Here](https://www.ebay.com/itm/285133454288?hash=item4263473bd0%3Ag%3A06AAAOSwAG5j3frm&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Google Pixel 6 Pro 128GB White G8VOU (T-Mobile) Android Smartphone VG5969. Shipping cost is undefined.Here is the posting visibly ![Google Pixel 6 Pro 128GB White G8VOU (T-Mobile) Android Smartphone VG5969](https://i.ebayimg.com/thumbs/images/g/06AAAOSwAG5j3frm/s-l225.jpg) to check out more postings here... ![Google Pixel 6 Pro 128GB White G8VOU (T-Mobile) Android Smartphone VG5969](https://i.ebayimg.com/images/g/06AAAOSwAG5j3frm/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/285133454288_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_9_0_1/225x225.jpg)'
+      Introducing th Google Pixel 6 Pro 128GB White G8VOU (T-Mobile) Android Smartphone VG5969 from a well-known brand.This Compact device  is sure to be a Draw-of-nterest in your home. [Click Here](https://www.ebay.com/itm/285133454288?hash=item4263473bd0%3Ag%3A06AAAOSwAG5j3frm&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Google Pixel 6 Pro 128GB White G8VOU (T-Mobile) Android Smartphone VG5969. Shipping cost is undefined.Here is the posting visibly ![Google Pixel 6 Pro 128GB White G8VOU (T-Mobile) Android Smartphone VG5969](https://i.ebayimg.com/thumbs/images/g/06AAAOSwAG5j3frm/s-l225.jpg) to check out more postings here... ![Google Pixel 6 Pro 128GB White G8VOU (T-Mobile) Android Smartphone VG5969](https://i.ebayimg.com/images/g/06AAAOSwAG5j3frm/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/285133454288_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285133454288_9_0_1/225x225.jpg)'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 146699 
+ - Feedback score - 146702 
 
 
       

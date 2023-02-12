@@ -3,8 +3,9 @@
       title: samsung galaxy s9 sm g960u 64gb unlocked c stock heavy burn
       status: Published
       date: '2023-02-12'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/7RcAAOSwwBtczMAO/s-l225.jpg
-      categories: 
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/7RcAAOSwwBtczMAO/s-l225.jpg'
+       
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -12,14 +13,12 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-        
+
 ---
 $
+      Introducing th Samsung Galaxy S9 SM-G960U- 64GB (Unlocked) - C Stock Heavy Burn from a well-known brand.This Mobile smartphone is sure to be a Crowd-pleaser in your home. [Click Here](https://www.ebay.com/itm/194895835243?hash=item2d60b2706b%3Ag%3A7RcAAOSwwBtczMAO&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Samsung Galaxy S9 SM-G960U- 64GB (Unlocked) - C Stock Heavy Burn. Shipping cost is undefined.Here is the posting visibly ![Samsung Galaxy S9 SM-G960U- 64GB (Unlocked) - C Stock Heavy Burn](https://i.ebayimg.com/thumbs/images/g/7RcAAOSwwBtczMAO/s-l225.jpg) to check out more postings here... ![Samsung Galaxy S9 SM-G960U- 64GB (Unlocked) - C Stock Heavy Burn](https://i.ebayimg.com/images/g/7RcAAOSwwBtczMAO/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/194895835243_2_0_1/225x225.jpg)'
 
-Discover yourself Samsung Galaxy S9 SM-G960U- 64GB (Unlocked) - C Stock Heavy Burn - a 1-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/194895835243?hash=item2d60b2706b%3Ag%3A7RcAAOSwwBtczMAO&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Samsung Galaxy S9 SM-G960U- 64GB (Unlocked) - C Stock Heavy Burn. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/7RcAAOSwwBtczMAO/s-l225.jpg)and the additional images are![Samsung Galaxy S9 SM-G960U- 64GB (Unlocked) - C Stock Heavy Burn](https://i.ebayimg.com/images/g/7RcAAOSwwBtczMAO/s-l960.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/194895835243_2_0_1/225x225.jpg)
-
-
+      
 
  ## Technical Facts 
 
@@ -43,7 +42,7 @@ $[Click Here](https://www.ebay.com/itm/194895835243?hash=item2d60b2706b%3Ag%3A7R
 
       
 
- - Feedback score - 121889 
+ - Feedback score - 121894 
 
 
       
@@ -59,5 +58,4 @@ $[Click Here](https://www.ebay.com/itm/194895835243?hash=item2d60b2706b%3Ag%3A7R
 
 
 
-
-
+      -

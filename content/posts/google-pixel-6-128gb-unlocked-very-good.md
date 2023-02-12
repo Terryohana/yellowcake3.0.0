@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Google - Pixel 6 128GB Unlocked - Very Good from a well-known brand.This Convenient size device  is sure to be a Decorative-accent in your home. [Click Here](https://www.ebay.com/itm/255889634594?hash=item3b9435f522%3Ag%3AY50AAOSwBehjoyPs&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Google - Pixel 6 128GB Unlocked - Very Good. Shipping cost is undefined.Here is the posting visibly ![Google - Pixel 6 128GB Unlocked - Very Good](https://i.ebayimg.com/thumbs/images/g/Y50AAOSwBehjoyPs/s-l225.jpg) to check out more postings here... ![Google - Pixel 6 128GB Unlocked - Very Good](https://i.ebayimg.com/images/g/Y50AAOSwBehjoyPs/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255889634594_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255889634594_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255889634594_4_0_1/225x225.jpg)'
+      Introducing th Google - Pixel 6 128GB Unlocked - Very Good from a well-known brand.This handheld hand held device is sure to be a Interactive-piece in your home. [Click Here](https://www.ebay.com/itm/255889634594?hash=item3b9435f522%3Ag%3AY50AAOSwBehjoyPs&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Google - Pixel 6 128GB Unlocked - Very Good. Shipping cost is undefined.Here is the posting visibly ![Google - Pixel 6 128GB Unlocked - Very Good](https://i.ebayimg.com/thumbs/images/g/Y50AAOSwBehjoyPs/s-l225.jpg) to check out more postings here... ![Google - Pixel 6 128GB Unlocked - Very Good](https://i.ebayimg.com/images/g/Y50AAOSwBehjoyPs/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255889634594_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255889634594_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255889634594_4_0_1/225x225.jpg)'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 81746 
+ - Feedback score - 81747 
 
 
       

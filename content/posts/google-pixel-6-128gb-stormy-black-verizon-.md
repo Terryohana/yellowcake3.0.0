@@ -3,23 +3,22 @@
       title: google pixel 6 128gb stormy black verizon 
       status: Published
       date: '2023-02-12'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/YgQAAOSwRCtjr05Y/s-l225.jpg
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/YgQAAOSwRCtjr05Y/s-l225.jpg'
       categories: 
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-      
+
         
 ---
 $
-
-Express yourself Google Pixel 6 - 128GB - Stormy Black (Verizon) - a 3-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/134439820963?hash=item1f4d3cdea3%3Ag%3AYgQAAOSwRCtjr05Y&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Google Pixel 6 - 128GB - Stormy Black (Verizon). Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/YgQAAOSwRCtjr05Y/s-l225.jpg)and the additional images are![Google Pixel 6 - 128GB - Stormy Black (Verizon)](https://i.ebayimg.com/images/g/YgQAAOSwRCtjr05Y/s-l1600.jpg)![check vendor page]()
-
-
+    Proven success, this Cell Phones & Smartphones device is available at a discounted price of 137.691 after a 10% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/134439820963?hash=item1f4d3cdea3%3Ag%3AYgQAAOSwRCtjr05Y&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Google Pixel 6 - 128GB - Stormy Black (Verizon). The shipping cost is undefined.Product ImageGoogle Pixel 6 - 128GB - Stormy Black (Verizon)Additional ImagesGoogle Pixel 6 - 128GB - Stormy Black (Verizon), check vendor page, ![check vendor page]()
+    
+    
 
  ## Technical Facts 
 
@@ -43,7 +42,7 @@ $[Click Here](https://www.ebay.com/itm/134439820963?hash=item1f4d3cdea3%3Ag%3AYg
 
       
 
- - Feedback score - 112120 
+ - Feedback score - 112121 
 
 
       
@@ -58,6 +57,8 @@ $[Click Here](https://www.ebay.com/itm/134439820963?hash=item1f4d3cdea3%3Ag%3AYg
 
 
 
-
-
-
+    
+    
+    
+    
+    

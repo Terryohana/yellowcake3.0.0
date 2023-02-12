@@ -16,7 +16,7 @@
 ---
 $
 
-Stay ahead of the game Sony Xperia 5 IV- 128GB - Black (Unlocked) (Dual SIM) US Version - a 3-star Cell Phones & Smartphones device.
+Make the most of your life Sony Xperia 5 IV- 128GB - Black (Unlocked) (Dual SIM) US Version - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/404151625451?hash=item5e195066eb%3Ag%3AdfoAAOSwHWFj0sr%7E&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Sony Xperia 5 IV- 128GB - Black (Unlocked) (Dual SIM) US Version. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/dfoAAOSwHWFj0sr~/s-l225.jpg)and the additional images are![Sony Xperia 5 IV- 128GB - Black (Unlocked) (Dual SIM) US Version](https://i.ebayimg.com/images/g/dfoAAOSwHWFj0sr~/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/404151625451_2_0_1/225x225.jpg)
 
 

@@ -16,7 +16,7 @@
 ---
 $
 
-Be the life of the party Google Pixel 4 - G020I - 64GB - All Colors - (Unlocked) - C Stock - a 4-star Cell Phones & Smartphones device.
+Experience life Google Pixel 4 - G020I - 64GB - All Colors - (Unlocked) - C Stock - a 2-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/175254467657?hash=item28cdfaf449%3Ag%3AbioAAOSw%7EQNiQgzp&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Google Pixel 4 - G020I - 64GB - All Colors - (Unlocked) - C Stock. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/bioAAOSw~QNiQgzp/s-l225.jpg)and the additional images are![Google Pixel 4 - G020I - 64GB - All Colors - (Unlocked) - C Stock](https://i.ebayimg.com/images/g/bioAAOSw~QNiQgzp/s-l1600.jpg)![check vendor page]()
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/175254467657?hash=item28cdfaf449%3Ag%3Abi
 
       
 
- - Feedback score - 121889 
+ - Feedback score - 121893 
 
 
       

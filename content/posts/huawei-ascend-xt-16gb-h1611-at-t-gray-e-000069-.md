@@ -2,7 +2,7 @@
       template: SinglePost
       title: huawei ascend xt 16gb h1611 at t gray e 000069 
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/IocAAOSwvHJjjfT5/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Huawei  Ascend XT 16GB H1611 (AT&T) Gray (E-000069) from a well-known brand.This On-the-go smartphone is sure to be a Display-feature in your home. [Click Here](https://www.ebay.com/itm/155397357041?hash=item242e677df1%3Ag%3AIocAAOSwvHJjjfT5&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Huawei  Ascend XT 16GB H1611 (AT&T) Gray (E-000069). Shipping cost is undefined.Here is the posting visibly ![Huawei  Ascend XT 16GB H1611 (AT&T) Gray (E-000069)](https://i.ebayimg.com/thumbs/images/g/IocAAOSwvHJjjfT5/s-l225.jpg) to check out more postings here... ![Huawei  Ascend XT 16GB H1611 (AT&T) Gray (E-000069)](https://i.ebayimg.com/images/g/IocAAOSwvHJjjfT5/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/155397357041_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155397357041_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155397357041_4_0_1/225x225.jpg)'
+      Introducing th Huawei  Ascend XT 16GB H1611 (AT&T) Gray (E-000069) from a well-known brand.This Wireless device  is sure to be a Decorative-accent in your home. [Click Here](https://www.ebay.com/itm/155397357041?hash=item242e677df1%3Ag%3AIocAAOSwvHJjjfT5&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Huawei  Ascend XT 16GB H1611 (AT&T) Gray (E-000069). Shipping cost is undefined.Here is the posting visibly ![Huawei  Ascend XT 16GB H1611 (AT&T) Gray (E-000069)](https://i.ebayimg.com/thumbs/images/g/IocAAOSwvHJjjfT5/s-l225.jpg) to check out more postings here... ![Huawei  Ascend XT 16GB H1611 (AT&T) Gray (E-000069)](https://i.ebayimg.com/images/g/IocAAOSwvHJjjfT5/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/155397357041_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155397357041_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155397357041_4_0_1/225x225.jpg)'
 
       
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 31.96 
+ - Listed Price- 39.95 
 
 
       
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 37415 
+ - Feedback score - 37417 
 
 
       

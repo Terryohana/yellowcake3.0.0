@@ -2,7 +2,7 @@
       template: SinglePost
       title: motorola consumer cellular moto g pure 32gb indigo
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/I3YAAOSwpr1iRN6K/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Motorola Consumer Cellular Moto G Pure (32GB) Indigo from a well-known brand.This Compact device  is sure to be a Guest-of-honor in your home. [Click Here](https://www.ebay.com/itm/134070118560?hash=item1f3733a8a0%3Ag%3AI3YAAOSwpr1iRN6K&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Motorola Consumer Cellular Moto G Pure (32GB) Indigo. Shipping cost is undefined.Here is the posting visibly ![Motorola Consumer Cellular Moto G Pure (32GB) Indigo](https://i.ebayimg.com/thumbs/images/g/I3YAAOSwpr1iRN6K/s-l225.jpg) to check out more postings here... ![Motorola Consumer Cellular Moto G Pure (32GB) Indigo](https://i.ebayimg.com/images/g/I3YAAOSwpr1iRN6K/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134070118560_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134070118560_3_0_1/225x225.jpg)'
+      Introducing th Motorola Consumer Cellular Moto G Pure (32GB) Indigo from a well-known brand.This Compact size smartphone is sure to be a Gathering-place in your home. [Click Here](https://www.ebay.com/itm/134070118560?hash=item1f3733a8a0%3Ag%3AI3YAAOSwpr1iRN6K&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Motorola Consumer Cellular Moto G Pure (32GB) Indigo. Shipping cost is undefined.Here is the posting visibly ![Motorola Consumer Cellular Moto G Pure (32GB) Indigo](https://i.ebayimg.com/thumbs/images/g/I3YAAOSwpr1iRN6K/s-l225.jpg) to check out more postings here... ![Motorola Consumer Cellular Moto G Pure (32GB) Indigo](https://i.ebayimg.com/images/g/I3YAAOSwpr1iRN6K/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134070118560_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134070118560_3_0_1/225x225.jpg)'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 385238 
+ - Feedback score - 385346 
 
 
       

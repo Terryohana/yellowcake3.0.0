@@ -2,7 +2,7 @@
       template: SinglePost
       title: lg g8 thinq 128gb g820 4g lte gsm unlocked excellent
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/hOQAAOSw6qdfqK8w/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th LG G8 ThinQ 128GB G820 4G LTE GSM Unlocked - Excellent from a well-known brand.This Pocket-sized hand held device is sure to be a Display-accent in your home. [Click Here](https://www.ebay.com/itm/285140601220?hash=item4263b44984%3Ag%3AhOQAAOSw6qdfqK8w&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the LG G8 ThinQ 128GB G820 4G LTE GSM Unlocked - Excellent. Shipping cost is undefined.Here is the posting visibly ![LG G8 ThinQ 128GB G820 4G LTE GSM Unlocked - Excellent](https://i.ebayimg.com/thumbs/images/g/hOQAAOSw6qdfqK8w/s-l225.jpg) to check out more postings here... ![LG G8 ThinQ 128GB G820 4G LTE GSM Unlocked - Excellent](https://i.ebayimg.com/images/g/hOQAAOSw6qdfqK8w/s-l1200.jpg), ![check vendor page]()'
+      Introducing th LG G8 ThinQ 128GB G820 4G LTE GSM Unlocked - Excellent from a well-known brand.This Wireless device  is sure to be a Showstopper in your home. [Click Here](https://www.ebay.com/itm/285140601220?hash=item4263b44984%3Ag%3AhOQAAOSw6qdfqK8w&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the LG G8 ThinQ 128GB G820 4G LTE GSM Unlocked - Excellent. Shipping cost is undefined.Here is the posting visibly ![LG G8 ThinQ 128GB G820 4G LTE GSM Unlocked - Excellent](https://i.ebayimg.com/thumbs/images/g/hOQAAOSw6qdfqK8w/s-l225.jpg) to check out more postings here... ![LG G8 ThinQ 128GB G820 4G LTE GSM Unlocked - Excellent](https://i.ebayimg.com/images/g/hOQAAOSw6qdfqK8w/s-l1200.jpg), ![check vendor page]()'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 12523 
+ - Feedback score - 12527 
 
 
       

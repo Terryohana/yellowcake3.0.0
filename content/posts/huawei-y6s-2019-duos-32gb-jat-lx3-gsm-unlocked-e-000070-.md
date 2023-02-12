@@ -2,7 +2,7 @@
       template: SinglePost
       title: huawei y6s 2019 duos 32gb jat lx3 gsm unlocked e 000070 
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/u7QAAOSwTE5j2EBf/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Be yourself HUAWEI Y6s (2019) Duos 32GB JAT-LX3 (GSM Unlocked)  (E-000070) - a 2-star Cell Phones & Smartphones device.
+Stay in style with HUAWEI Y6s (2019) Duos 32GB JAT-LX3 (GSM Unlocked)  (E-000070) - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/155397380873?hash=item242e67db09%3Ag%3Au7QAAOSwTE5j2EBf&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the HUAWEI Y6s (2019) Duos 32GB JAT-LX3 (GSM Unlocked)  (E-000070). Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/u7QAAOSwTE5j2EBf/s-l225.jpg)and the additional images are![HUAWEI Y6s (2019) Duos 32GB JAT-LX3 (GSM Unlocked)  (E-000070)](https://i.ebayimg.com/images/g/u7QAAOSwTE5j2EBf/s-l960.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/155397380873_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155397380873_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/155397380873_4_0_1/225x225.jpg)
 
 
@@ -33,7 +33,7 @@ $[Click Here](https://www.ebay.com/itm/155397380873?hash=item242e67db09%3Ag%3Au7
 
       
 
- - Listed Price- 91.96 
+ - Listed Price- 114.95 
 
 
       
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/155397380873?hash=item242e67db09%3Ag%3Au7
 
       
 
- - Feedback score - 37415 
+ - Feedback score - 37417 
 
 
       

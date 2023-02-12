@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Apple iPhone SE 2nd Gen 64|128|256GB 4G LTE 4.7 Verizon Unlocked T-Mobile AT&T from a well-known brand.This Cordless smartphone is sure to be a conversation piece in your home. [Click Here](https://www.ebay.com/itm/165337199649?hash=item267edd7421%3Ag%3AWK0AAOSw5pxjgrpi&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Apple iPhone SE 2nd Gen 64|128|256GB 4G LTE 4.7 Verizon Unlocked T-Mobile AT&T. Shipping cost is undefined.Here is the posting visibly ![Apple iPhone SE 2nd Gen 64|128|256GB 4G LTE 4.7 Verizon Unlocked T-Mobile AT&T](https://i.ebayimg.com/thumbs/images/g/WK0AAOSw5pxjgrpi/s-l225.jpg) to check out more postings here... ![Apple iPhone SE 2nd Gen 64|128|256GB 4G LTE 4.7 Verizon Unlocked T-Mobile AT&T](https://i.ebayimg.com/images/g/WK0AAOSw5pxjgrpi/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165337199649_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165337199649_3_0_1/225x225.jpg)'
+      Introducing th Apple iPhone SE 2nd Gen 64|128|256GB 4G LTE 4.7 Verizon Unlocked T-Mobile AT&T from a well-known brand.This industrially made smartphone is sure to be a Piece-de-resistance in your home. [Click Here](https://www.ebay.com/itm/165337199649?hash=item267edd7421%3Ag%3AWK0AAOSw5pxjgrpi&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Apple iPhone SE 2nd Gen 64|128|256GB 4G LTE 4.7 Verizon Unlocked T-Mobile AT&T. Shipping cost is undefined.Here is the posting visibly ![Apple iPhone SE 2nd Gen 64|128|256GB 4G LTE 4.7 Verizon Unlocked T-Mobile AT&T](https://i.ebayimg.com/thumbs/images/g/WK0AAOSw5pxjgrpi/s-l225.jpg) to check out more postings here... ![Apple iPhone SE 2nd Gen 64|128|256GB 4G LTE 4.7 Verizon Unlocked T-Mobile AT&T](https://i.ebayimg.com/images/g/WK0AAOSw5pxjgrpi/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165337199649_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165337199649_3_0_1/225x225.jpg)'
 
       
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 179.99 
+ - Listed Price- 139.99 
 
 
       

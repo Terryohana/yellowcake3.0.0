@@ -3,9 +3,8 @@
       title: samsung galaxy note 10 n970u 256gb factory unlocked smartphone used
       status: Published
       date: '2023-02-12'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/e0MAAOSwq7hg-aH9/s-l225.jpg'
-       
-
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/3PAAAOSwhyti~XyN/s-l225.jpg
+      categories: 
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -13,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th Samsung Galaxy Note 10 N970U 256GB Factory Unlocked Smartphone - Used from a well-known brand.This Portable device  is sure to be a Eye-catching-item in your home. [Click Here](https://www.ebay.com/itm/255062634927?hash=item3b62eaf1af%3Ag%3Ae0MAAOSwq7hg-aH9&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Samsung Galaxy Note 10 N970U 256GB Factory Unlocked Smartphone - Used. Shipping cost is undefined.Here is the posting visibly ![Samsung Galaxy Note 10 N970U 256GB Factory Unlocked Smartphone - Used](https://i.ebayimg.com/thumbs/images/g/e0MAAOSwq7hg-aH9/s-l225.jpg) to check out more postings here... ![Samsung Galaxy Note 10 N970U 256GB Factory Unlocked Smartphone - Used](https://i.ebayimg.com/images/g/e0MAAOSwq7hg-aH9/s-l1200.jpg), ![check vendor page]()'
 
-      
+Be confident Samsung Galaxy Note 10 N970U 256GB Factory Unlocked Smartphone - Used - a 1-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/304601132317?hash=item46eba46d1d%3Ag%3A3PAAAOSwhyti%7EXyN&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Samsung Galaxy Note 10 N970U 256GB Factory Unlocked Smartphone - Used. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/3PAAAOSwhyti~XyN/s-l225.jpg)and the additional images are![Samsung Galaxy Note 10 N970U 256GB Factory Unlocked Smartphone - Used](https://i.ebayimg.com/images/g/3PAAAOSwhyti~XyN/s-l1600.jpg)![check vendor page]()
+
+
 
  ## Technical Facts 
 
@@ -32,7 +33,7 @@ $
 
       
 
- - Listed Price- 179.99 
+ - Listed Price- 180.50 
 
 
       
@@ -42,7 +43,7 @@ $
 
       
 
- - Feedback score - 81746 
+ - Feedback score - 69929 
 
 
       
@@ -58,4 +59,5 @@ $
 
 
 
-      -
+
+

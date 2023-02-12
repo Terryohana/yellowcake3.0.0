@@ -2,10 +2,9 @@
       template: SinglePost
       title: lg g8 thinq 128gb black verizon unlocked good shadow
       status: Published
-      date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/iEYAAOSwFM5glEt2/s-l225.jpg'
-       
-
+      date: '2023-02-12'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/iEYAAOSwFM5glEt2/s-l225.jpg
+      categories: 
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -13,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th LG G8 ThinQ - 128GB - Black (Verizon & Unlocked) GOOD shadow from a well-known brand.This Maneuverable smartphone is sure to be a Unique-item in your home. [Click Here](https://www.ebay.com/itm/325350279519?hash=item4bc063495f%3Ag%3AiEYAAOSwFM5glEt2&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the LG G8 ThinQ - 128GB - Black (Verizon & Unlocked) GOOD shadow. Shipping cost is undefined.Here is the posting visibly ![LG G8 ThinQ - 128GB - Black (Verizon & Unlocked) GOOD shadow](https://i.ebayimg.com/thumbs/images/g/iEYAAOSwFM5glEt2/s-l225.jpg) to check out more postings here... ![LG G8 ThinQ - 128GB - Black (Verizon & Unlocked) GOOD shadow](https://i.ebayimg.com/images/g/iEYAAOSwFM5glEt2/s-l500.jpg), ![check vendor page]()'
 
-      
+Live life with no regrets LG G8 ThinQ - 128GB - Black (Verizon & Unlocked) GOOD shadow - a 5-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/325350279519?hash=item4bc063495f%3Ag%3AiEYAAOSwFM5glEt2&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the LG G8 ThinQ - 128GB - Black (Verizon & Unlocked) GOOD shadow. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/iEYAAOSwFM5glEt2/s-l225.jpg)and the additional images are![LG G8 ThinQ - 128GB - Black (Verizon & Unlocked) GOOD shadow](https://i.ebayimg.com/images/g/iEYAAOSwFM5glEt2/s-l500.jpg)![check vendor page]()
+
+
 
  ## Technical Facts 
 
@@ -42,7 +43,7 @@ $
 
       
 
- - Feedback score - 15135 
+ - Feedback score - 15143 
 
 
       
@@ -58,4 +59,5 @@ $
 
 
 
-      -
+
+

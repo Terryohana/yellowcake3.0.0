@@ -2,9 +2,9 @@
       template: SinglePost
       title: huawei honor 8 frd l19 64gb gsm unlocked dual sim bad battery j5736
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/rNQAAOSw74FjV-hk/s-l225.jpg'
-      categories: 
+       
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -12,13 +12,13 @@
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
+      
 
-        
 ---
 $
-    User-endorsed, this Cell Phones & Smartphones device is available at a discounted price of 45.3811 after a 11% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/134415634728?hash=item1f4bcbd128%3Ag%3ArNQAAOSw74FjV-hk&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Huawei Honor 8 (FRD-L19) 64GB (GSM Unlocked) Dual SIM - BAD BATTERY - J5736. The shipping cost is undefined.Product ImageHuawei Honor 8 (FRD-L19) 64GB (GSM Unlocked) Dual SIM - BAD BATTERY - J5736Additional ImagesHuawei Honor 8 (FRD-L19) 64GB (GSM Unlocked) Dual SIM - BAD BATTERY - J5736, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134415634728_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134415634728_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134415634728_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134415634728_5_0_1/225x225.jpg)
-    
-    
+      Introducing th Huawei Honor 8 (FRD-L19) 64GB (GSM Unlocked) Dual SIM - BAD BATTERY - J5736 from a well-known brand.This industrially made device  is sure to be a Draw-of-attention in your home. [Click Here](https://www.ebay.com/itm/134415634728?hash=item1f4bcbd128%3Ag%3ArNQAAOSw74FjV-hk&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Huawei Honor 8 (FRD-L19) 64GB (GSM Unlocked) Dual SIM - BAD BATTERY - J5736. Shipping cost is undefined.Here is the posting visibly ![Huawei Honor 8 (FRD-L19) 64GB (GSM Unlocked) Dual SIM - BAD BATTERY - J5736](https://i.ebayimg.com/thumbs/images/g/rNQAAOSw74FjV-hk/s-l225.jpg) to check out more postings here... ![Huawei Honor 8 (FRD-L19) 64GB (GSM Unlocked) Dual SIM - BAD BATTERY - J5736](https://i.ebayimg.com/images/g/rNQAAOSw74FjV-hk/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134415634728_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134415634728_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134415634728_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134415634728_5_0_1/225x225.jpg)'
+
+      
 
  ## Technical Facts 
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 38593 
+ - Feedback score - 38601 
 
 
       
@@ -57,8 +57,5 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+      -

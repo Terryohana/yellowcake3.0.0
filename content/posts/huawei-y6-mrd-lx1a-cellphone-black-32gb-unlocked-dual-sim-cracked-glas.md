@@ -2,23 +2,24 @@
       template: SinglePost
       title: huawei y6 mrd lx1a cellphone black 32gb unlocked dual sim cracked glas
       status: Published
-      date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/QmwAAOSwzA1jyV76/s-l225.jpg'
+      date: '2023-02-12'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/QmwAAOSwzA1jyV76/s-l225.jpg
       categories: 
-
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-
+      
         
 ---
 $
-    Industry standard, this Cell Phones & Smartphones device is available at a discounted price of 24.083399999999997 after a 11% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/175579406715?hash=item28e159217b%3Ag%3AQmwAAOSwzA1jyV76&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Huawei Y6 MRD-LX1A Cellphone (Black 32GB) Unlocked Dual Sim CRACKED GLAS. The shipping cost is undefined.Product ImageHuawei Y6 MRD-LX1A Cellphone (Black 32GB) Unlocked Dual Sim CRACKED GLASAdditional ImagesHuawei Y6 MRD-LX1A Cellphone (Black 32GB) Unlocked Dual Sim CRACKED GLAS, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175579406715_2_0_1/225x225.jpg)
-    
-    
+
+Be the life of the party Huawei Y6 MRD-LX1A Cellphone (Black 32GB) Unlocked Dual Sim CRACKED GLAS - a 5-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/175579406715?hash=item28e159217b%3Ag%3AQmwAAOSwzA1jyV76&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Huawei Y6 MRD-LX1A Cellphone (Black 32GB) Unlocked Dual Sim CRACKED GLAS. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/QmwAAOSwzA1jyV76/s-l225.jpg)and the additional images are![Huawei Y6 MRD-LX1A Cellphone (Black 32GB) Unlocked Dual Sim CRACKED GLAS](https://i.ebayimg.com/images/g/QmwAAOSwzA1jyV76/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175579406715_2_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -42,7 +43,7 @@ $
 
       
 
- - Feedback score - 79162 
+ - Feedback score - 79173 
 
 
       
@@ -57,8 +58,6 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+
+

@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/iJ8AAOSwXhtiysmm/s-l225.jpg'
-      categories: 
+       
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -12,13 +12,13 @@
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
+      
 
-        
 ---
 $
-    Proven success, this Cell Phones & Smartphones device is available at a discounted price of 69.6514 after a 14% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/134169076919?hash=item1f3d19a4b7%3Ag%3AiJ8AAOSwXhtiysmm&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Impaired Sony Xperia XZ Premium, Fully Unlocked, 64 GB, Clean ESN (WXXW) | G8142. The shipping cost is undefined.Product ImageImpaired Sony Xperia XZ Premium, Fully Unlocked, 64 GB, Clean ESN (WXXW) | G8142Additional ImagesImpaired Sony Xperia XZ Premium, Fully Unlocked, 64 GB, Clean ESN (WXXW) | G8142, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134169076919_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134169076919_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134169076919_4_0_1/225x225.jpg)
-    
-    
+      Introducing th Impaired Sony Xperia XZ Premium, Fully Unlocked, 64 GB, Clean ESN (WXXW) | G8142 from a well-known brand.This Cordless device  is sure to be a Decorative-statement in your home. [Click Here](https://www.ebay.com/itm/134169076919?hash=item1f3d19a4b7%3Ag%3AiJ8AAOSwXhtiysmm&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Impaired Sony Xperia XZ Premium, Fully Unlocked, 64 GB, Clean ESN (WXXW) | G8142. Shipping cost is undefined.Here is the posting visibly ![Impaired Sony Xperia XZ Premium, Fully Unlocked, 64 GB, Clean ESN (WXXW) | G8142](https://i.ebayimg.com/thumbs/images/g/iJ8AAOSwXhtiysmm/s-l225.jpg) to check out more postings here... ![Impaired Sony Xperia XZ Premium, Fully Unlocked, 64 GB, Clean ESN (WXXW) | G8142](https://i.ebayimg.com/images/g/iJ8AAOSwXhtiysmm/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134169076919_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134169076919_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134169076919_4_0_1/225x225.jpg)'
+
+      
 
  ## Technical Facts 
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 51124 
+ - Feedback score - 51125 
 
 
       
@@ -57,8 +57,5 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+      -

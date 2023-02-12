@@ -2,7 +2,7 @@
       template: SinglePost
       title: huawei honor 8 64gb pearl white unlocked frd l14 scratches
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/9PcAAOSwrxpd7Alq/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Stay ahead of the game Huawei Honor 8 64GB, Pearl White, Unlocked, FRD-L14, Scratches - a 2-star Cell Phones & Smartphones device.
+Be the best you can be  Huawei Honor 8 64GB, Pearl White, Unlocked, FRD-L14, Scratches - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/184073899664?hash=item2adba8ce90%3Ag%3A9PcAAOSwrxpd7Alq&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Huawei Honor 8 64GB, Pearl White, Unlocked, FRD-L14, Scratches. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/9PcAAOSwrxpd7Alq/s-l225.jpg)and the additional images are![Huawei Honor 8 64GB, Pearl White, Unlocked, FRD-L14, Scratches](https://i.ebayimg.com/images/g/9PcAAOSwrxpd7Alq/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/184073899664_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/184073899664_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/184073899664_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/184073899664_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/184073899664_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/184073899664_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/184073899664_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/184073899664_9_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/184073899664?hash=item2adba8ce90%3Ag%3A9P
 
       
 
- - Feedback score - 3525 
+ - Feedback score - 3528 
 
 
       

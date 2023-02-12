@@ -2,7 +2,7 @@
       template: SinglePost
       title: unlocked lg g4 h811 4g lte smart phone t mobile metro tello lyca a grade
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/JTQAAOSwZLBhHmPM/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th UNLOCKED LG G4 H811 4G LTE Smart Phone / T-Mobile METRO Tello LYCA  *A GRADE from a well-known brand.This Compact smartphone is sure to be a Decorative-accent in your home. [Click Here](https://www.ebay.com/itm/265275234314?hash=item3dc3a2d80a%3Ag%3AJTQAAOSwZLBhHmPM&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the UNLOCKED LG G4 H811 4G LTE Smart Phone / T-Mobile METRO Tello LYCA  *A GRADE. Shipping cost is undefined.Here is the posting visibly ![UNLOCKED LG G4 H811 4G LTE Smart Phone / T-Mobile METRO Tello LYCA  *A GRADE](https://i.ebayimg.com/thumbs/images/g/JTQAAOSwZLBhHmPM/s-l225.jpg) to check out more postings here... ![UNLOCKED LG G4 H811 4G LTE Smart Phone / T-Mobile METRO Tello LYCA  *A GRADE](https://i.ebayimg.com/images/g/JTQAAOSwZLBhHmPM/s-l640.jpg), ![check vendor page]()'
+      Introducing th UNLOCKED LG G4 H811 4G LTE Smart Phone / T-Mobile METRO Tello LYCA  *A GRADE from a well-known brand.This Cordless hand held device is sure to be a Conversation-center in your home. [Click Here](https://www.ebay.com/itm/265275234314?hash=item3dc3a2d80a%3Ag%3AJTQAAOSwZLBhHmPM&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the UNLOCKED LG G4 H811 4G LTE Smart Phone / T-Mobile METRO Tello LYCA  *A GRADE. Shipping cost is undefined.Here is the posting visibly ![UNLOCKED LG G4 H811 4G LTE Smart Phone / T-Mobile METRO Tello LYCA  *A GRADE](https://i.ebayimg.com/thumbs/images/g/JTQAAOSwZLBhHmPM/s-l225.jpg) to check out more postings here... ![UNLOCKED LG G4 H811 4G LTE Smart Phone / T-Mobile METRO Tello LYCA  *A GRADE](https://i.ebayimg.com/images/g/JTQAAOSwZLBhHmPM/s-l640.jpg), ![check vendor page]()'
 
       
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 38.90 
+ - Listed Price- 36.80 
 
 
       
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 27850 
+ - Feedback score - 27853 
 
 
       

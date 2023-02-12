@@ -16,7 +16,7 @@
 ---
 $
 
-Be inspired Xperia 5 II 128GB Black Unlocked Excellent Condition - a 1-star Cell Phones & Smartphones device.
+Make memories Xperia 5 II 128GB Black Unlocked Excellent Condition - a 1-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/275676803466?hash=item402f9e318a%3Ag%3Aq7kAAOSwp45j5W2f&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Xperia 5 II 128GB Black Unlocked Excellent Condition. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/q7kAAOSwp45j5W2f/s-l225.jpg)and the additional images are![Xperia 5 II 128GB Black Unlocked Excellent Condition](https://i.ebayimg.com/images/g/q7kAAOSwp45j5W2f/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275676803466_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275676803466_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275676803466_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275676803466_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275676803466_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275676803466_7_0_1/225x225.jpg)
 
 

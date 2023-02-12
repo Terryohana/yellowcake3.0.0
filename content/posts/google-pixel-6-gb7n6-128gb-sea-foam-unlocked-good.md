@@ -16,7 +16,7 @@
 ---
 $
 
-Live life to the fullest Google Pixel 6 - GB7N6 - 128GB - Sea foam - (Unlocked) - Good - a 4-star Cell Phones & Smartphones device.
+Live life to the fullest Google Pixel 6 - GB7N6 - 128GB - Sea foam - (Unlocked) - Good - a 1-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/195502798605?hash=item2d84dff70d%3Ag%3AcOYAAOSwK0Vi9%7EWB&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Google Pixel 6 - GB7N6 - 128GB - Sea foam - (Unlocked) - Good. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/cOYAAOSwK0Vi9~WB/s-l225.jpg)and the additional images are![Google Pixel 6 - GB7N6 - 128GB - Sea foam - (Unlocked) - Good](https://i.ebayimg.com/images/g/cOYAAOSwK0Vi9~WB/s-l960.jpg)![check vendor page]()
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/195502798605?hash=item2d84dff70d%3Ag%3AcO
 
       
 
- - Feedback score - 121889 
+ - Feedback score - 121893 
 
 
       

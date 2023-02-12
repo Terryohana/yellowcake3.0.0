@@ -1,0 +1,63 @@
+---
+      template: SinglePost
+      title: lg k8 2018 aristo 2 rebel 4 case slim shockproof cover tempered screen protector
+      status: Published
+      date: '2023-02-12'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/PF4AAOSw6kRiCwbG/s-l225.jpg
+      categories: 
+      excerpt: >-
+        [smartphone,device ,hand held device]
+      meta:
+      canonicalLink: ''
+      description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
+      noindex: false
+      
+        
+---
+$
+
+Live life with no regrets LG K8 2018 Aristo 2 Rebel 4 Case Slim Shockproof Cover Tempered Screen Protector - a 1-star Cases, Covers & Skins device.
+$[Click Here](https://www.ebay.com/itm/394331272629?hash=item5bcff9b5b5%3Ag%3APF4AAOSw6kRiCwbG&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the LG K8 2018 Aristo 2 Rebel 4 Case Slim Shockproof Cover Tempered Screen Protector. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/PF4AAOSw6kRiCwbG/s-l225.jpg)and the additional images are![LG K8 2018 Aristo 2 Rebel 4 Case Slim Shockproof Cover Tempered Screen Protector](https://i.ebayimg.com/images/g/PF4AAOSw6kRiCwbG/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/394331272629_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/394331272629_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/394331272629_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/394331272629_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/394331272629_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/394331272629_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/394331272629_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/394331272629_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/394331272629_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/394331272629_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/394331272629_12_0_1/225x225.jpg)
+
+
+
+ ## Technical Facts 
+
+
+
+     
+      
+
+ - Condition- New 
+
+
+      
+
+ - Listed Price- 13.89 
+
+
+      
+
+ - Currency- USD 
+
+
+      
+
+ - Feedback score - 3508 
+
+
+      
+
+ - Location - US 
+
+
+      
+      
+
+ *_This post may contain affiliate links from eBay and other third-party websites. As an eBay affiliate, we earn from qualifying purchases. Although we do our best to keep the information up-to-date and accurate, please check the date and all details with the vendor's website before making a purchase. Not all data may be accurate._*
+
+
+
+
+
+

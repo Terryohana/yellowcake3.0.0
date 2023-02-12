@@ -2,7 +2,7 @@
       template: SinglePost
       title: google nexus 6p 64gb matte gold lte unlocked smartphone
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/3JQAAOSw5JZjFfAv/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Google Nexus 6P 64GB Matte Gold LTE Unlocked Smartphone from a well-known brand.This industrially made smartphone is sure to be a Room-center in your home. [Click Here](https://www.ebay.com/itm/275448268991?hash=item4021ff08bf%3Ag%3A3JQAAOSw5JZjFfAv&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Google Nexus 6P 64GB Matte Gold LTE Unlocked Smartphone. Shipping cost is undefined.Here is the posting visibly ![Google Nexus 6P 64GB Matte Gold LTE Unlocked Smartphone](https://i.ebayimg.com/thumbs/images/g/3JQAAOSw5JZjFfAv/s-l225.jpg) to check out more postings here... ![Google Nexus 6P 64GB Matte Gold LTE Unlocked Smartphone](https://i.ebayimg.com/images/g/3JQAAOSw5JZjFfAv/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275448268991_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275448268991_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275448268991_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275448268991_5_0_1/225x225.jpg)'
+      Introducing th Google Nexus 6P 64GB Matte Gold LTE Unlocked Smartphone from a well-known brand.This industrially made hand held device is sure to be a Decorative-statement in your home. [Click Here](https://www.ebay.com/itm/275448268991?hash=item4021ff08bf%3Ag%3A3JQAAOSw5JZjFfAv&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Google Nexus 6P 64GB Matte Gold LTE Unlocked Smartphone. Shipping cost is undefined.Here is the posting visibly ![Google Nexus 6P 64GB Matte Gold LTE Unlocked Smartphone](https://i.ebayimg.com/thumbs/images/g/3JQAAOSw5JZjFfAv/s-l225.jpg) to check out more postings here... ![Google Nexus 6P 64GB Matte Gold LTE Unlocked Smartphone](https://i.ebayimg.com/images/g/3JQAAOSw5JZjFfAv/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275448268991_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275448268991_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275448268991_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275448268991_5_0_1/225x225.jpg)'
 
       
 

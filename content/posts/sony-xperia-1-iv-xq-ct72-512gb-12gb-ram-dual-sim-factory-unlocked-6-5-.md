@@ -4,7 +4,7 @@
       status: Published
       date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/U9YAAOSw4aVii9mb/s-l225.jpg'
-      categories: 
+       
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -12,13 +12,13 @@
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
+      
 
-        
 ---
 $
-    Industry leader, this Cell Phones & Smartphones device is available at a discounted price of 773.9914 after a 14% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/224996742644?hash=item3462d9d5f4%3Ag%3AU9YAAOSw4aVii9mb&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony XPERIA 1 IV XQ-CT72 512GB 12GB RAM Dual SIM (FACTORY UNLOCKED) 6.5". The shipping cost is undefined.Product ImageSony XPERIA 1 IV XQ-CT72 512GB 12GB RAM Dual SIM (FACTORY UNLOCKED) 6.5"Additional ImagesSony XPERIA 1 IV XQ-CT72 512GB 12GB RAM Dual SIM (FACTORY UNLOCKED) 6.5", check vendor page, ![check vendor page]()
-    
-    
+      Introducing th Sony XPERIA 1 IV XQ-CT72 512GB 12GB RAM Dual SIM (FACTORY UNLOCKED) 6.5" from a well-known brand.This Portable smartphone is sure to be a conversation piece in your home. [Click Here](https://www.ebay.com/itm/224996742644?hash=item3462d9d5f4%3Ag%3AU9YAAOSw4aVii9mb&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony XPERIA 1 IV XQ-CT72 512GB 12GB RAM Dual SIM (FACTORY UNLOCKED) 6.5". Shipping cost is undefined.Here is the posting visibly ![Sony XPERIA 1 IV XQ-CT72 512GB 12GB RAM Dual SIM (FACTORY UNLOCKED) 6.5"](https://i.ebayimg.com/thumbs/images/g/U9YAAOSw4aVii9mb/s-l225.jpg) to check out more postings here... ![Sony XPERIA 1 IV XQ-CT72 512GB 12GB RAM Dual SIM (FACTORY UNLOCKED) 6.5"](https://i.ebayimg.com/images/g/U9YAAOSw4aVii9mb/s-l1600.jpg), ![check vendor page]()'
+
+      
 
  ## Technical Facts 
 
@@ -57,8 +57,5 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+      -

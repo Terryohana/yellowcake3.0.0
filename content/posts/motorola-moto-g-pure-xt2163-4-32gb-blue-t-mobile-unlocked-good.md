@@ -2,24 +2,23 @@
       template: SinglePost
       title: motorola moto g pure xt2163 4 32gb blue t mobile unlocked good
       status: Published
-      date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/IfYAAOSw~ZRiIm0a/s-l225.jpg
+      date: '2023-02-12'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/IfYAAOSw~ZRiIm0a/s-l225.jpg'
       categories: 
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-      
+
         
 ---
 $
-
-Stay in style with Motorola Moto G Pure - XT2163-4 32GB Blue (T-Mobile Unlocked) Good - a 4-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/185418810379?hash=item2b2bd2840b%3Ag%3AIfYAAOSw%7EZRiIm0a&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Motorola Moto G Pure - XT2163-4 32GB Blue (T-Mobile Unlocked) Good. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/IfYAAOSw~ZRiIm0a/s-l225.jpg)and the additional images are![Motorola Moto G Pure - XT2163-4 32GB Blue (T-Mobile Unlocked) Good](https://i.ebayimg.com/images/g/IfYAAOSw~ZRiIm0a/s-l1600.jpg)![check vendor page]()
-
-
+    User-endorsed, this Cell Phones & Smartphones device is available at a discounted price of 59.831199999999995 after a 12% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/185418810379?hash=item2b2bd2840b%3Ag%3AIfYAAOSw%7EZRiIm0a&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Motorola Moto G Pure - XT2163-4 32GB Blue (T-Mobile Unlocked) Good. The shipping cost is undefined.Product ImageMotorola Moto G Pure - XT2163-4 32GB Blue (T-Mobile Unlocked) GoodAdditional ImagesMotorola Moto G Pure - XT2163-4 32GB Blue (T-Mobile Unlocked) Good, check vendor page, ![check vendor page]()
+    
+    
 
  ## Technical Facts 
 
@@ -43,7 +42,7 @@ $[Click Here](https://www.ebay.com/itm/185418810379?hash=item2b2bd2840b%3Ag%3AIf
 
       
 
- - Feedback score - 121855 
+ - Feedback score - 121894 
 
 
       
@@ -58,6 +57,8 @@ $[Click Here](https://www.ebay.com/itm/185418810379?hash=item2b2bd2840b%3Ag%3AIf
 
 
 
-
-
-
+    
+    
+    
+    
+    

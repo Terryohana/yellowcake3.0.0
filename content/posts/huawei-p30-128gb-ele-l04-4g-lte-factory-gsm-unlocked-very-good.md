@@ -2,9 +2,10 @@
       template: SinglePost
       title: huawei p30 128gb ele l04 4g lte factory gsm unlocked very good
       status: Published
-      date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/StAAAOSwaJFeoLqT/s-l225.jpg
-      categories: 
+      date: '2023-02-12'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/StAAAOSwaJFeoLqT/s-l225.jpg'
+       
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -12,14 +13,12 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-        
+
 ---
 $
+      Introducing th Huawei P30 128GB ELE-L04 4G LTE Factory GSM Unlocked - Very Good from a well-known brand.This Miniature device  is sure to be a Decorative-statement in your home. [Click Here](https://www.ebay.com/itm/283856298402?hash=item42172761a2%3Ag%3AStAAAOSwaJFeoLqT&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Huawei P30 128GB ELE-L04 4G LTE Factory GSM Unlocked - Very Good. Shipping cost is undefined.Here is the posting visibly ![Huawei P30 128GB ELE-L04 4G LTE Factory GSM Unlocked - Very Good](https://i.ebayimg.com/thumbs/images/g/StAAAOSwaJFeoLqT/s-l225.jpg) to check out more postings here... ![Huawei P30 128GB ELE-L04 4G LTE Factory GSM Unlocked - Very Good](https://i.ebayimg.com/images/g/StAAAOSwaJFeoLqT/s-l1200.jpg), ![check vendor page]()'
 
-Be on trend Huawei P30 128GB ELE-L04 4G LTE Factory GSM Unlocked - Very Good - a 1-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/283856298402?hash=item42172761a2%3Ag%3AStAAAOSwaJFeoLqT&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Huawei P30 128GB ELE-L04 4G LTE Factory GSM Unlocked - Very Good. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/StAAAOSwaJFeoLqT/s-l225.jpg)and the additional images are![Huawei P30 128GB ELE-L04 4G LTE Factory GSM Unlocked - Very Good](https://i.ebayimg.com/images/g/StAAAOSwaJFeoLqT/s-l1200.jpg)![check vendor page]()
-
-
+      
 
  ## Technical Facts 
 
@@ -43,7 +42,7 @@ $[Click Here](https://www.ebay.com/itm/283856298402?hash=item42172761a2%3Ag%3ASt
 
       
 
- - Feedback score - 12523 
+ - Feedback score - 12527 
 
 
       
@@ -59,5 +58,4 @@ $[Click Here](https://www.ebay.com/itm/283856298402?hash=item42172761a2%3Ag%3ASt
 
 
 
-
-
+      -

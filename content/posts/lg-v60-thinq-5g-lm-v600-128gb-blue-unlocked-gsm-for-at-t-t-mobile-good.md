@@ -2,10 +2,9 @@
       template: SinglePost
       title: lg v60 thinq 5g lm v600 128gb blue unlocked gsm for at t t mobile good
       status: Published
-      date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/2ngAAOSw5R5juy1o/s-l225.jpg'
-       
-
+      date: '2023-02-12'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/2ngAAOSw5R5juy1o/s-l225.jpg
+      categories: 
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -13,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th LG V60 ThinQ 5G LM-V600 128GB Blue Unlocked GSM For AT&T T-Mobile - Good from a well-known brand.This Holdable device  is sure to be a Showstopper in your home. [Click Here](https://www.ebay.com/itm/404097302404?hash=item5e16137f84%3Ag%3A2ngAAOSw5R5juy1o&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the LG V60 ThinQ 5G LM-V600 128GB Blue Unlocked GSM For AT&T T-Mobile - Good. Shipping cost is undefined.Here is the posting visibly ![LG V60 ThinQ 5G LM-V600 128GB Blue Unlocked GSM For AT&T T-Mobile - Good](https://i.ebayimg.com/thumbs/images/g/2ngAAOSw5R5juy1o/s-l225.jpg) to check out more postings here... ![LG V60 ThinQ 5G LM-V600 128GB Blue Unlocked GSM For AT&T T-Mobile - Good](https://i.ebayimg.com/images/g/2ngAAOSw5R5juy1o/s-l960.jpg), ![check vendor page]()'
 
-      
+Stay connected LG V60 ThinQ 5G LM-V600 128GB Blue Unlocked GSM For AT&T T-Mobile - Good - a 2-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/404097302404?hash=item5e16137f84%3Ag%3A2ngAAOSw5R5juy1o&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the LG V60 ThinQ 5G LM-V600 128GB Blue Unlocked GSM For AT&T T-Mobile - Good. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/2ngAAOSw5R5juy1o/s-l225.jpg)and the additional images are![LG V60 ThinQ 5G LM-V600 128GB Blue Unlocked GSM For AT&T T-Mobile - Good](https://i.ebayimg.com/images/g/2ngAAOSw5R5juy1o/s-l960.jpg)![check vendor page]()
+
+
 
  ## Technical Facts 
 
@@ -42,7 +43,7 @@ $
 
       
 
- - Feedback score - 271032 
+ - Feedback score - 271038 
 
 
       
@@ -58,4 +59,5 @@ $
 
 
 
-      -
+
+

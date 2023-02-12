@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Sony Xperia 5 II 128GB XQ-AS62 4G LTE Factory Unlocked - Fair from a well-known brand.This Compact size device  is sure to be a Point-of-interest in your home. [Click Here](https://www.ebay.com/itm/275642906121?hash=item402d98f609%3Ag%3AuCMAAOSwUYBitfzZ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Xperia 5 II 128GB XQ-AS62 4G LTE Factory Unlocked - Fair. Shipping cost is undefined.Here is the posting visibly ![Sony Xperia 5 II 128GB XQ-AS62 4G LTE Factory Unlocked - Fair](https://i.ebayimg.com/thumbs/images/g/uCMAAOSwUYBitfzZ/s-l225.jpg) to check out more postings here... ![Sony Xperia 5 II 128GB XQ-AS62 4G LTE Factory Unlocked - Fair](https://i.ebayimg.com/images/g/uCMAAOSwUYBitfzZ/s-l1600.jpg), ![check vendor page]()'
+      Introducing th Sony Xperia 5 II 128GB XQ-AS62 4G LTE Factory Unlocked - Fair from a well-known brand.This Cordless device  is sure to be a centerpiece in your home. [Click Here](https://www.ebay.com/itm/275642906121?hash=item402d98f609%3Ag%3AuCMAAOSwUYBitfzZ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Xperia 5 II 128GB XQ-AS62 4G LTE Factory Unlocked - Fair. Shipping cost is undefined.Here is the posting visibly ![Sony Xperia 5 II 128GB XQ-AS62 4G LTE Factory Unlocked - Fair](https://i.ebayimg.com/thumbs/images/g/uCMAAOSwUYBitfzZ/s-l225.jpg) to check out more postings here... ![Sony Xperia 5 II 128GB XQ-AS62 4G LTE Factory Unlocked - Fair](https://i.ebayimg.com/images/g/uCMAAOSwUYBitfzZ/s-l1600.jpg), ![check vendor page]()'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 12526 
+ - Feedback score - 12527 
 
 
       

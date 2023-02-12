@@ -2,8 +2,8 @@
       template: SinglePost
       title: shockproof tank phone case cover clip holster stand built in screen protector
       status: Published
-      date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/S5EAAOSwZDdioAsJ/s-l225.jpg
+      date: '2023-02-12'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/uoMAAOSwEOhfzEZ2/s-l225.jpg
       categories: 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -16,8 +16,8 @@
 ---
 $
 
-Be the life of the party SHOCKPROOF TANK Phone Case Cover Clip Holster Stand + BUILT-IN SCREEN PROTECTOR - a 5-star Cases, Covers & Skins device.
-$[Click Here](https://www.ebay.com/itm/225023149693?hash=item34646cc67d%3Ag%3AS5EAAOSwZDdioAsJ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the SHOCKPROOF TANK Phone Case Cover Clip Holster Stand + BUILT-IN SCREEN PROTECTOR. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/S5EAAOSwZDdioAsJ/s-l225.jpg)and the additional images are![SHOCKPROOF TANK Phone Case Cover Clip Holster Stand + BUILT-IN SCREEN PROTECTOR](https://i.ebayimg.com/images/g/S5EAAOSwZDdioAsJ/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/225023149693_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225023149693_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225023149693_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225023149693_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225023149693_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225023149693_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225023149693_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225023149693_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225023149693_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225023149693_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225023149693_12_0_1/225x225.jpg)
+Stay ahead of the game SHOCKPROOF TANK Phone Case Cover Clip Holster Stand + BUILT-IN SCREEN PROTECTOR - a 4-star Cases, Covers & Skins device.
+$[Click Here](https://www.ebay.com/itm/164563201118?hash=item2650bb2c5e%3Ag%3AuoMAAOSwEOhfzEZ2&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the SHOCKPROOF TANK Phone Case Cover Clip Holster Stand + BUILT-IN SCREEN PROTECTOR. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/uoMAAOSwEOhfzEZ2/s-l225.jpg)and the additional images are![SHOCKPROOF TANK Phone Case Cover Clip Holster Stand + BUILT-IN SCREEN PROTECTOR](https://i.ebayimg.com/images/g/uoMAAOSwEOhfzEZ2/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/164563201118_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/164563201118_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/164563201118_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/164563201118_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/164563201118_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/164563201118_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/164563201118_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/164563201118_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/164563201118_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/164563201118_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/164563201118_12_0_1/225x225.jpg)
 
 
 
@@ -33,7 +33,7 @@ $[Click Here](https://www.ebay.com/itm/225023149693?hash=item34646cc67d%3Ag%3AS5
 
       
 
- - Listed Price- 9.95 
+ - Listed Price- 9.91 
 
 
       
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/225023149693?hash=item34646cc67d%3Ag%3AS5
 
       
 
- - Feedback score - 167552 
+ - Feedback score - 10778 
 
 
       

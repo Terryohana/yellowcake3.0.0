@@ -16,7 +16,7 @@
 ---
 $
 
-Be the best version of yourself Apple iPhone 11 64GB Factory Unlocked AT&T T-Mobile Verizon Excellent Condition - a 4-star Cell Phones & Smartphones device.
+Make your mark Apple iPhone 11 64GB Factory Unlocked AT&T T-Mobile Verizon Excellent Condition - a 3-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/294369221441?hash=item4489c5db41%3Ag%3Axq8AAOSwg3hhjTm1&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Apple iPhone 11 64GB Factory Unlocked AT&T T-Mobile Verizon Excellent Condition. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/xq8AAOSwg3hhjTm1/s-l225.jpg)and the additional images are![Apple iPhone 11 64GB Factory Unlocked AT&T T-Mobile Verizon Excellent Condition](https://i.ebayimg.com/images/g/xq8AAOSwg3hhjTm1/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/294369221441_2_0_1/225x225.jpg)
 
 

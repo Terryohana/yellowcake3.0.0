@@ -2,7 +2,7 @@
       template: SinglePost
       title: samsung galaxy note 10 plus n975u 256gb unlocked good
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/TzAAAOSwEetjj301/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Stay on top of things Samsung Galaxy Note 10 Plus N975U 256GB Unlocked - Good - a 2-star Cell Phones & Smartphones device.
+Stay motivated Samsung Galaxy Note 10 Plus N975U 256GB Unlocked - Good - a 2-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/254587835370?hash=item3b469e13ea%3Ag%3ATzAAAOSwEetjj301&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Samsung Galaxy Note 10 Plus N975U 256GB Unlocked - Good. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/TzAAAOSwEetjj301/s-l225.jpg)and the additional images are![Samsung Galaxy Note 10 Plus N975U 256GB Unlocked - Good](https://i.ebayimg.com/images/g/TzAAAOSwEetjj301/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/254587835370_2_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/254587835370?hash=item3b469e13ea%3Ag%3ATz
 
       
 
- - Feedback score - 81712 
+ - Feedback score - 81747 
 
 
       

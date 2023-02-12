@@ -2,7 +2,7 @@
       template: SinglePost
       title: huawei nova 9 128gb 8gb ram nam lx9 dual sim gsm unlocked global version
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/chwAAOSwlZ9jgEIZ/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Huawei nova 9 128GB 8GB RAM NAM-LX9 Dual SIM GSM Unlocked Global Version from a well-known brand.This Mobile device  is sure to be a Main-event in your home. [Click Here](https://www.ebay.com/itm/255845495640?hash=item3b91947358%3Ag%3AchwAAOSwlZ9jgEIZ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Huawei nova 9 128GB 8GB RAM NAM-LX9 Dual SIM GSM Unlocked Global Version. Shipping cost is undefined.Here is the posting visibly ![Huawei nova 9 128GB 8GB RAM NAM-LX9 Dual SIM GSM Unlocked Global Version](https://i.ebayimg.com/thumbs/images/g/chwAAOSwlZ9jgEIZ/s-l225.jpg) to check out more postings here... ![Huawei nova 9 128GB 8GB RAM NAM-LX9 Dual SIM GSM Unlocked Global Version](https://i.ebayimg.com/images/g/chwAAOSwlZ9jgEIZ/s-l960.jpg), ![check vendor page]()'
+      Introducing th Huawei nova 9 128GB 8GB RAM NAM-LX9 Dual SIM GSM Unlocked Global Version from a well-known brand.This Carriable device  is sure to be a Attention-grabber in your home. [Click Here](https://www.ebay.com/itm/255845495640?hash=item3b91947358%3Ag%3AchwAAOSwlZ9jgEIZ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Huawei nova 9 128GB 8GB RAM NAM-LX9 Dual SIM GSM Unlocked Global Version. Shipping cost is undefined.Here is the posting visibly ![Huawei nova 9 128GB 8GB RAM NAM-LX9 Dual SIM GSM Unlocked Global Version](https://i.ebayimg.com/thumbs/images/g/chwAAOSwlZ9jgEIZ/s-l225.jpg) to check out more postings here... ![Huawei nova 9 128GB 8GB RAM NAM-LX9 Dual SIM GSM Unlocked Global Version](https://i.ebayimg.com/images/g/chwAAOSwlZ9jgEIZ/s-l960.jpg), ![check vendor page]()'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 1837 
+ - Feedback score - 1839 
 
 
       

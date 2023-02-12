@@ -2,7 +2,7 @@
       template: SinglePost
       title: lg g8 thinq lm g820 128gb silver sprint unlocked a05895 
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/Vv0AAOSws3BjzWpW/s-l225.jpg'
       categories: 
 
@@ -16,7 +16,7 @@
         
 ---
 $
-    Highly rated by users, this Cell Phones & Smartphones device is available at a discounted price of 42.178399999999996 after a 12% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/255889907722?hash=item3b943a200a%3Ag%3AVv0AAOSws3BjzWpW&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the LG G8 ThinQ - LM-G820 - 128GB - Silver (Sprint - Unlocked) (a05895). The shipping cost is undefined.Product ImageLG G8 ThinQ - LM-G820 - 128GB - Silver (Sprint - Unlocked) (a05895)Additional ImagesLG G8 ThinQ - LM-G820 - 128GB - Silver (Sprint - Unlocked) (a05895), check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255889907722_2_0_1/225x225.jpg)
+    Reliable brand, this Cell Phones & Smartphones device is available at a discounted price of 41.756 after a 12% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/255889907722?hash=item3b943a200a%3Ag%3AVv0AAOSws3BjzWpW&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the LG G8 ThinQ - LM-G820 - 128GB - Silver (Sprint - Unlocked) (a05895). The shipping cost is undefined.Product ImageLG G8 ThinQ - LM-G820 - 128GB - Silver (Sprint - Unlocked) (a05895)Additional ImagesLG G8 ThinQ - LM-G820 - 128GB - Silver (Sprint - Unlocked) (a05895), check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255889907722_2_0_1/225x225.jpg)
     
     
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 47.93 
+ - Listed Price- 47.45 
 
 
       
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 21042 
+ - Feedback score - 21043 
 
 
       

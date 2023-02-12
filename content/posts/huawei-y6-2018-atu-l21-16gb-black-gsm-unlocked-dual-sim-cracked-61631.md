@@ -2,7 +2,7 @@
       template: SinglePost
       title: huawei y6 2018 atu l21 16gb black gsm unlocked dual sim cracked 61631
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/EUUAAOSwsV1jVttt/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Be the best you can be  Huawei Y6 2018 (ATU-L21) 16GB - Black (GSM Unlocked) Dual SIM - CRACKED - 61631 - a 4-star Cell Phones & Smartphones device.
+Live life with no regrets Huawei Y6 2018 (ATU-L21) 16GB - Black (GSM Unlocked) Dual SIM - CRACKED - 61631 - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/144781078588?hash=item21b59ff03c%3Ag%3AEUUAAOSwsV1jVttt&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Huawei Y6 2018 (ATU-L21) 16GB - Black (GSM Unlocked) Dual SIM - CRACKED - 61631. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/EUUAAOSwsV1jVttt/s-l225.jpg)and the additional images are![Huawei Y6 2018 (ATU-L21) 16GB - Black (GSM Unlocked) Dual SIM - CRACKED - 61631](https://i.ebayimg.com/images/g/EUUAAOSwsV1jVttt/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144781078588_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144781078588_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144781078588_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144781078588_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144781078588_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144781078588_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144781078588_8_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/144781078588?hash=item21b59ff03c%3Ag%3AEU
 
       
 
- - Feedback score - 38593 
+ - Feedback score - 38601 
 
 
       

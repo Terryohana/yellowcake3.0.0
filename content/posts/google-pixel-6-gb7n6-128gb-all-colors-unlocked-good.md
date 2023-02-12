@@ -16,7 +16,7 @@
         
 ---
 $
-    Exceptional performance, this Cell Phones & Smartphones device is available at a discounted price of 186.8911 after a 11% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/175266226491?hash=item28ceae613b%3Ag%3Aua4AAOSwh4picDXn&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Google Pixel 6 - GB7N6 - 128GB - All Colors - (Unlocked) - Good. The shipping cost is undefined.Product ImageGoogle Pixel 6 - GB7N6 - 128GB - All Colors - (Unlocked) - GoodAdditional ImagesGoogle Pixel 6 - GB7N6 - 128GB - All Colors - (Unlocked) - Good, check vendor page, ![check vendor page]()
+    Most purchased, this Cell Phones & Smartphones device is available at a discounted price of 186.8911 after a 11% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/175266226491?hash=item28ceae613b%3Ag%3Aua4AAOSwh4picDXn&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Google Pixel 6 - GB7N6 - 128GB - All Colors - (Unlocked) - Good. The shipping cost is undefined.Product ImageGoogle Pixel 6 - GB7N6 - 128GB - All Colors - (Unlocked) - GoodAdditional ImagesGoogle Pixel 6 - GB7N6 - 128GB - All Colors - (Unlocked) - Good, check vendor page, ![check vendor page]()
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 121889 
+ - Feedback score - 121893 
 
 
       

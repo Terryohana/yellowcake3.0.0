@@ -2,7 +2,7 @@
       template: SinglePost
       title: lot of 3 huawei nexus 6p smartphones as is 2 32gb 1 128gb
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/-VQAAOSwAmdj2XoC/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Stay up to date Lot of 3 Huawei Nexus 6P Smartphones - AS IS  2 32gb 1 128gb - a 3-star Cell Phones & Smartphones device.
+Be the best you can be  Lot of 3 Huawei Nexus 6P Smartphones - AS IS  2 32gb 1 128gb - a 3-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/195579404925?hash=item2d8970e27d%3Ag%3A-VQAAOSwAmdj2XoC&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Lot of 3 Huawei Nexus 6P Smartphones - AS IS  2 32gb 1 128gb. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/-VQAAOSwAmdj2XoC/s-l225.jpg)and the additional images are![Lot of 3 Huawei Nexus 6P Smartphones - AS IS  2 32gb 1 128gb](https://i.ebayimg.com/images/g/-VQAAOSwAmdj2XoC/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/195579404925_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195579404925_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195579404925_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/195579404925_5_0_1/225x225.jpg)
 
 

@@ -16,7 +16,7 @@
 ---
 $
 
-Be the best you can be  Unlocked Sony Xperia 1 III XQ-BC62 6.5" 4K HDR OLED 256GB NFC Dual SIM 5G Black - a 1-star Cell Phones & Smartphones device.
+Be the best version of yourself Unlocked Sony Xperia 1 III XQ-BC62 6.5" 4K HDR OLED 256GB NFC Dual SIM 5G Black - a 3-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/325336048290?hash=item4bbf8a22a2%3Ag%3AjtEAAOSwOPFiugX1&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Unlocked Sony Xperia 1 III XQ-BC62 6.5" 4K HDR OLED 256GB NFC Dual SIM 5G Black. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/jtEAAOSwOPFiugX1/s-l225.jpg)and the additional images are![Unlocked Sony Xperia 1 III XQ-BC62 6.5" 4K HDR OLED 256GB NFC Dual SIM 5G Black](https://i.ebayimg.com/images/g/jtEAAOSwOPFiugX1/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325336048290_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325336048290_3_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/325336048290?hash=item4bbf8a22a2%3Ag%3Ajt
 
       
 
- - Feedback score - 133888 
+ - Feedback score - 133889 
 
 
       

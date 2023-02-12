@@ -16,7 +16,7 @@
 ---
 $
 
-Be inspired Google Pixel 6 5G 6.4"  Fully Unlocked (Any Carrier) 128GB SmartPhone Good - a 4-star Cell Phones & Smartphones device.
+Be ahead of the curve Google Pixel 6 5G 6.4"  Fully Unlocked (Any Carrier) 128GB SmartPhone Good - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/225332070780?hash=item3476d6897c%3Ag%3Av7gAAOSwMu1iHWh2&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Google Pixel 6 5G 6.4"  Fully Unlocked (Any Carrier) 128GB SmartPhone Good. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/v7gAAOSwMu1iHWh2/s-l225.jpg)and the additional images are![Google Pixel 6 5G 6.4"  Fully Unlocked (Any Carrier) 128GB SmartPhone Good](https://i.ebayimg.com/images/g/v7gAAOSwMu1iHWh2/s-l1600.jpg)![check vendor page]()
 
 

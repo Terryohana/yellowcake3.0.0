@@ -16,7 +16,7 @@
 ---
 $
 
-Live life to its fullest 422.Sony Ericsson Xperia Mini Very Rare - For Collectors - Unlocked - a 4-star Cell Phones & Smartphones device.
+Be yourself 422.Sony Ericsson Xperia Mini Very Rare - For Collectors - Unlocked - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/165933926821?hash=item26a26ec9a5%3Ag%3ALAIAAOSwvEpj54kK&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the 422.Sony Ericsson Xperia Mini Very Rare - For Collectors - Unlocked. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/LAIAAOSwvEpj54kK/s-l225.jpg)and the additional images are![422.Sony Ericsson Xperia Mini Very Rare - For Collectors - Unlocked](https://i.ebayimg.com/images/g/LAIAAOSwvEpj54kK/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165933926821_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933926821_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933926821_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933926821_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165933926821_6_0_1/225x225.jpg)
 
 

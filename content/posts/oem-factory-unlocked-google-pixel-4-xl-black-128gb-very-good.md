@@ -3,9 +3,8 @@
       title: oem factory unlocked google pixel 4 xl black 128gb very good
       status: Published
       date: '2023-02-12'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/BcsAAOSwhTxh8Qs4/s-l225.jpg'
-       
-
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/BcsAAOSwhTxh8Qs4/s-l225.jpg
+      categories: 
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -13,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th OEM Factory Unlocked Google Pixel 4 XL Black 128GB - Very Good from a well-known brand.This industrially made device  is sure to be a Decorative-statement in your home. [Click Here](https://www.ebay.com/itm/275628289756?hash=item402cb9eedc%3Ag%3ABcsAAOSwhTxh8Qs4&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the OEM Factory Unlocked Google Pixel 4 XL Black 128GB - Very Good. Shipping cost is undefined.Here is the posting visibly ![OEM Factory Unlocked Google Pixel 4 XL Black 128GB - Very Good](https://i.ebayimg.com/thumbs/images/g/BcsAAOSwhTxh8Qs4/s-l225.jpg) to check out more postings here... ![OEM Factory Unlocked Google Pixel 4 XL Black 128GB - Very Good](https://i.ebayimg.com/images/g/BcsAAOSwhTxh8Qs4/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275628289756_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275628289756_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275628289756_4_0_1/225x225.jpg)'
 
-      
+Be daring OEM Factory Unlocked Google Pixel 4 XL Black 128GB - Very Good - a 5-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/225360396791?hash=item347886c1f7%3Ag%3ABcsAAOSwhTxh8Qs4&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the OEM Factory Unlocked Google Pixel 4 XL Black 128GB - Very Good. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/BcsAAOSwhTxh8Qs4/s-l225.jpg)and the additional images are![OEM Factory Unlocked Google Pixel 4 XL Black 128GB - Very Good](https://i.ebayimg.com/images/g/BcsAAOSwhTxh8Qs4/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/225360396791_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225360396791_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225360396791_4_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -27,12 +28,12 @@ $
      
       
 
- - Condition- Very Good - Refurbished 
+ - Condition- Open box 
 
 
       
 
- - Listed Price- 165.00 
+ - Listed Price- 169.00 
 
 
       
@@ -42,7 +43,7 @@ $
 
       
 
- - Feedback score - 6277 
+ - Feedback score - 4875 
 
 
       
@@ -58,4 +59,5 @@ $
 
 
 
-      -
+
+

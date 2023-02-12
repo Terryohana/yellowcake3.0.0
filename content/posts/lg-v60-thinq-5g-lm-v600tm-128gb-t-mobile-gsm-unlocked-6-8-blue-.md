@@ -2,7 +2,7 @@
       template: SinglePost
       title: lg v60 thinq 5g lm v600tm 128gb t mobile gsm unlocked 6 8 blue 
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/v9wAAOSwWHti7UQp/s-l225.jpg'
       categories: 
 
@@ -16,7 +16,7 @@
         
 ---
 $
-    Innovative design, this Cell Phones & Smartphones device is available at a discounted price of 225.765 after a 13% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/255667904237?hash=item3b86fe9eed%3Ag%3Av9wAAOSwWHti7UQp&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the LG V60 ThinQ 5G LM-V600TM 128GB T-Mobile GSM 🔓 Unlocked 6.8" - Blue 🔟/🔟. The shipping cost is undefined.Product ImageLG V60 ThinQ 5G LM-V600TM 128GB T-Mobile GSM 🔓 Unlocked 6.8" - Blue 🔟/🔟Additional ImagesLG V60 ThinQ 5G LM-V600TM 128GB T-Mobile GSM 🔓 Unlocked 6.8" - Blue 🔟/🔟, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255667904237_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255667904237_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255667904237_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255667904237_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255667904237_6_0_1/225x225.jpg)
+    User-approved, this Cell Phones & Smartphones device is available at a discounted price of 223.17 after a 14% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/255667904237?hash=item3b86fe9eed%3Ag%3Av9wAAOSwWHti7UQp&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the LG V60 ThinQ 5G LM-V600TM 128GB T-Mobile GSM 🔓 Unlocked 6.8" - Blue 🔟/🔟. The shipping cost is undefined.Product ImageLG V60 ThinQ 5G LM-V600TM 128GB T-Mobile GSM 🔓 Unlocked 6.8" - Blue 🔟/🔟Additional ImagesLG V60 ThinQ 5G LM-V600TM 128GB T-Mobile GSM 🔓 Unlocked 6.8" - Blue 🔟/🔟, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255667904237_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255667904237_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255667904237_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255667904237_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255667904237_6_0_1/225x225.jpg)
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 16161 
+ - Feedback score - 16170 
 
 
       

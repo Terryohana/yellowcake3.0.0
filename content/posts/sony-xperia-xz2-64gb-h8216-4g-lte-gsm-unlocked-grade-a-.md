@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Sony Xperia XZ2 64GB H8216 4G LTE GSM Unlocked - Grade A+ from a well-known brand.This Cordless smartphone is sure to be a Display-accent in your home. [Click Here](https://www.ebay.com/itm/273677734463?hash=item3fb876d23f%3Ag%3AoNEAAOSwGYZd1HQX&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Xperia XZ2 64GB H8216 4G LTE GSM Unlocked - Grade A+. Shipping cost is undefined.Here is the posting visibly ![Sony Xperia XZ2 64GB H8216 4G LTE GSM Unlocked - Grade A+](https://i.ebayimg.com/thumbs/images/g/oNEAAOSwGYZd1HQX/s-l225.jpg) to check out more postings here... ![Sony Xperia XZ2 64GB H8216 4G LTE GSM Unlocked - Grade A+](https://i.ebayimg.com/images/g/oNEAAOSwGYZd1HQX/s-l500.jpg), ![check vendor page]()'
+      Introducing th Sony Xperia XZ2 64GB H8216 4G LTE GSM Unlocked - Grade A+ from a well-known brand.This Miniature hand held device is sure to be a Object-of--interest in your home. [Click Here](https://www.ebay.com/itm/273677734463?hash=item3fb876d23f%3Ag%3AoNEAAOSwGYZd1HQX&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Xperia XZ2 64GB H8216 4G LTE GSM Unlocked - Grade A+. Shipping cost is undefined.Here is the posting visibly ![Sony Xperia XZ2 64GB H8216 4G LTE GSM Unlocked - Grade A+](https://i.ebayimg.com/thumbs/images/g/oNEAAOSwGYZd1HQX/s-l225.jpg) to check out more postings here... ![Sony Xperia XZ2 64GB H8216 4G LTE GSM Unlocked - Grade A+](https://i.ebayimg.com/images/g/oNEAAOSwGYZd1HQX/s-l500.jpg), ![check vendor page]()'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 12526 
+ - Feedback score - 12527 
 
 
       

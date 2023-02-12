@@ -2,7 +2,7 @@
       template: SinglePost
       title: lg g6 ice platinum 32gb unlocked no at t 
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/7NQAAOSwVVtjcmHl/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Be daring LG G6 Ice Platinum 32gb Unlocked (No AT&T) - a 1-star Cell Phones & Smartphones device.
+Be on trend LG G6 Ice Platinum 32gb Unlocked (No AT&T) - a 3-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/354525663051?hash=item528b604f4b%3Ag%3A7NQAAOSwVVtjcmHl&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the LG G6 Ice Platinum 32gb Unlocked (No AT&T). Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/7NQAAOSwVVtjcmHl/s-l225.jpg)and the additional images are![LG G6 Ice Platinum 32gb Unlocked (No AT&T)](https://i.ebayimg.com/images/g/7NQAAOSwVVtjcmHl/s-l960.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/354525663051_2_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/354525663051?hash=item528b604f4b%3Ag%3A7N
 
       
 
- - Feedback score - 2490 
+ - Feedback score - 2494 
 
 
       

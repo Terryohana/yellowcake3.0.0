@@ -16,7 +16,7 @@
 ---
 $
 
-Be unforgettable Sony Xperia 1 - SO-03L - 64GB- Black (Japanese Docomo Unlocked) (B Good) - a 2-star Cell Phones & Smartphones device.
+Be unforgettable Sony Xperia 1 - SO-03L - 64GB- Black (Japanese Docomo Unlocked) (B Good) - a 3-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/195119949556?hash=item2d6e0e26f4%3Ag%3APEgAAOSw5B9htOeK&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Sony Xperia 1 - SO-03L - 64GB- Black (Japanese Docomo Unlocked) (B Good). Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/PEgAAOSw5B9htOeK/s-l225.jpg)and the additional images are![Sony Xperia 1 - SO-03L - 64GB- Black (Japanese Docomo Unlocked) (B Good)](https://i.ebayimg.com/images/g/PEgAAOSw5B9htOeK/s-l960.jpg)![check vendor page]()
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/195119949556?hash=item2d6e0e26f4%3Ag%3APE
 
       
 
- - Feedback score - 121889 
+ - Feedback score - 121894 
 
 
       

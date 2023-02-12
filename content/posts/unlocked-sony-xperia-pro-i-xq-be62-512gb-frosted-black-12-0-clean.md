@@ -16,7 +16,7 @@
 ---
 $
 
-Stay ahead of the game Unlocked Sony Xperia Pro-I XQ-BE62 512GB Frosted Black 12.0 Clean - a 5-star Cell Phones & Smartphones device.
+Be unforgettable Unlocked Sony Xperia Pro-I XQ-BE62 512GB Frosted Black 12.0 Clean - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/225389016203?hash=item347a3b748b%3Ag%3AD-EAAOSwRQVj2Tf5&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Unlocked Sony Xperia Pro-I XQ-BE62 512GB Frosted Black 12.0 Clean. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/D-EAAOSwRQVj2Tf5/s-l225.jpg)and the additional images are![Unlocked Sony Xperia Pro-I XQ-BE62 512GB Frosted Black 12.0 Clean](https://i.ebayimg.com/images/g/D-EAAOSwRQVj2Tf5/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/225389016203_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225389016203_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225389016203_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225389016203_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225389016203_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225389016203_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225389016203_8_0_1/225x225.jpg)
 
 

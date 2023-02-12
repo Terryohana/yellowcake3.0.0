@@ -2,7 +2,7 @@
       template: SinglePost
       title: lg v60 thinq 5g uw lmv600vm blue white 128gb for verizon very good
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/2rwAAOSwF1hjIi36/s-l225.jpg'
       categories: 
 
@@ -16,7 +16,7 @@
         
 ---
 $
-    Premium quality, this Cell Phones & Smartphones device is available at a discounted price of 154 after a 12% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/144716781801?hash=item21b1cad8e9%3Ag%3A2rwAAOSwF1hjIi36&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the LG V60 ThinQ 5G UW LMV600VM Blue White 128GB for Verizon - Very Good. The shipping cost is undefined.Product ImageLG V60 ThinQ 5G UW LMV600VM Blue White 128GB for Verizon - Very GoodAdditional ImagesLG V60 ThinQ 5G UW LMV600VM Blue White 128GB for Verizon - Very Good, check vendor page, ![check vendor page]()
+    Innovative design, this Cell Phones & Smartphones device is available at a discounted price of 150.5 after a 14% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/144716781801?hash=item21b1cad8e9%3Ag%3A2rwAAOSwF1hjIi36&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the LG V60 ThinQ 5G UW LMV600VM Blue White 128GB for Verizon - Very Good. The shipping cost is undefined.Product ImageLG V60 ThinQ 5G UW LMV600VM Blue White 128GB for Verizon - Very GoodAdditional ImagesLG V60 ThinQ 5G UW LMV600VM Blue White 128GB for Verizon - Very Good, check vendor page, ![check vendor page]()
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 813 
+ - Feedback score - 816 
 
 
       

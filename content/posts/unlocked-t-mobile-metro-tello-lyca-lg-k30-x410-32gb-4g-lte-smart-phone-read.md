@@ -2,7 +2,7 @@
       template: SinglePost
       title: unlocked t mobile metro tello lyca lg k30 x410 32gb 4g lte smart phone read
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/6okAAOSw5EZjzC~b/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Be daring UNLOCKED / T-Mobile METRO Tello LYCA LG K30 X410 32GB 4G LTE Smart Phone *READ - a 5-star Cell Phones & Smartphones device.
+Be daring UNLOCKED / T-Mobile METRO Tello LYCA LG K30 X410 32GB 4G LTE Smart Phone *READ - a 3-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/234868602356?hash=item36af4275f4%3Ag%3A6okAAOSw5EZjzC%7Eb&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the UNLOCKED / T-Mobile METRO Tello LYCA LG K30 X410 32GB 4G LTE Smart Phone *READ. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/6okAAOSw5EZjzC~b/s-l225.jpg)and the additional images are![UNLOCKED / T-Mobile METRO Tello LYCA LG K30 X410 32GB 4G LTE Smart Phone *READ](https://i.ebayimg.com/images/g/6okAAOSw5EZjzC~b/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/234868602356_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/234868602356_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/234868602356_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/234868602356_5_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/234868602356?hash=item36af4275f4%3Ag%3A6o
 
       
 
- - Feedback score - 27850 
+ - Feedback score - 27853 
 
 
       

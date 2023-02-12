@@ -2,7 +2,7 @@
       template: SinglePost
       title: lg g6 ls993 32gb blue sprint unlocked a04750 
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/qKUAAOSws41j5iy6/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Be confident LG G6 - LS993 - 32GB - Blue (Sprint - Unlocked) (a04750) - a 2-star Cell Phones & Smartphones device.
+Stay connected with LG G6 - LS993 - 32GB - Blue (Sprint - Unlocked) (a04750) - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/266035464518?hash=item3df0f30946%3Ag%3AqKUAAOSws41j5iy6&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the LG G6 - LS993 - 32GB - Blue (Sprint - Unlocked) (a04750). Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/qKUAAOSws41j5iy6/s-l225.jpg)and the additional images are![LG G6 - LS993 - 32GB - Blue (Sprint - Unlocked) (a04750)](https://i.ebayimg.com/images/g/qKUAAOSws41j5iy6/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/266035464518_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/266035464518_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/266035464518_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/266035464518_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/266035464518_6_0_1/225x225.jpg)
 
 
@@ -33,7 +33,7 @@ $[Click Here](https://www.ebay.com/itm/266035464518?hash=item3df0f30946%3Ag%3AqK
 
       
 
- - Listed Price- 33.48 
+ - Listed Price- 33.15 
 
 
       
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/266035464518?hash=item3df0f30946%3Ag%3AqK
 
       
 
- - Feedback score - 21042 
+ - Feedback score - 21043 
 
 
       

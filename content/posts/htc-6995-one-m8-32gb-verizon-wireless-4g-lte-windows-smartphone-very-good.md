@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th HTC 6995 One M8 32GB Verizon Wireless 4G LTE Windows Smartphone - Very Good from a well-known brand.This Compact hand held device is sure to be a Design-element in your home. [Click Here](https://www.ebay.com/itm/363288712255?hash=item5495b1d43f%3Ag%3A3xgAAOSw0kdgJBTY&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the HTC 6995 One M8 32GB Verizon Wireless 4G LTE Windows Smartphone - Very Good. Shipping cost is undefined.Here is the posting visibly ![HTC 6995 One M8 32GB Verizon Wireless 4G LTE Windows Smartphone - Very Good](https://i.ebayimg.com/thumbs/images/g/3xgAAOSw0kdgJBTY/s-l225.jpg) to check out more postings here... ![HTC 6995 One M8 32GB Verizon Wireless 4G LTE Windows Smartphone - Very Good](https://i.ebayimg.com/images/g/3xgAAOSw0kdgJBTY/s-l1200.jpg), ![check vendor page]()'
+      Introducing th HTC 6995 One M8 32GB Verizon Wireless 4G LTE Windows Smartphone - Very Good from a well-known brand.This Mobile device device  is sure to be a Decorative-display in your home. [Click Here](https://www.ebay.com/itm/363288712255?hash=item5495b1d43f%3Ag%3A3xgAAOSw0kdgJBTY&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the HTC 6995 One M8 32GB Verizon Wireless 4G LTE Windows Smartphone - Very Good. Shipping cost is undefined.Here is the posting visibly ![HTC 6995 One M8 32GB Verizon Wireless 4G LTE Windows Smartphone - Very Good](https://i.ebayimg.com/thumbs/images/g/3xgAAOSw0kdgJBTY/s-l225.jpg) to check out more postings here... ![HTC 6995 One M8 32GB Verizon Wireless 4G LTE Windows Smartphone - Very Good](https://i.ebayimg.com/images/g/3xgAAOSw0kdgJBTY/s-l1200.jpg), ![check vendor page]()'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 340220 
+ - Feedback score - 340221 
 
 
       

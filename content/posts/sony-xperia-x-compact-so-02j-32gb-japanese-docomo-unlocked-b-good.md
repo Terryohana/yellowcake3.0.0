@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Sony Xperia X Compact SO-02J - 32GB - (Japanese Docomo Unlocked ) B Good from a well-known brand.This Mobile hand held device is sure to be a Unique-item in your home. [Click Here](https://www.ebay.com/itm/185375091241?hash=item2b29376a29%3Ag%3AJAAAAOSw579hs4Xi&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Xperia X Compact SO-02J - 32GB - (Japanese Docomo Unlocked ) B Good. Shipping cost is undefined.Here is the posting visibly ![Sony Xperia X Compact SO-02J - 32GB - (Japanese Docomo Unlocked ) B Good](https://i.ebayimg.com/thumbs/images/g/JAAAAOSw579hs4Xi/s-l225.jpg) to check out more postings here... ![Sony Xperia X Compact SO-02J - 32GB - (Japanese Docomo Unlocked ) B Good](https://i.ebayimg.com/images/g/JAAAAOSw579hs4Xi/s-l1600.jpg), ![check vendor page]()'
+      Introducing th Sony Xperia X Compact SO-02J - 32GB - (Japanese Docomo Unlocked ) B Good from a well-known brand.This Transportable smartphone is sure to be a Gathering-place in your home. [Click Here](https://www.ebay.com/itm/185375091241?hash=item2b29376a29%3Ag%3AJAAAAOSw579hs4Xi&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Xperia X Compact SO-02J - 32GB - (Japanese Docomo Unlocked ) B Good. Shipping cost is undefined.Here is the posting visibly ![Sony Xperia X Compact SO-02J - 32GB - (Japanese Docomo Unlocked ) B Good](https://i.ebayimg.com/thumbs/images/g/JAAAAOSw579hs4Xi/s-l225.jpg) to check out more postings here... ![Sony Xperia X Compact SO-02J - 32GB - (Japanese Docomo Unlocked ) B Good](https://i.ebayimg.com/images/g/JAAAAOSw579hs4Xi/s-l1600.jpg), ![check vendor page]()'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 121889 
+ - Feedback score - 121894 
 
 
       

@@ -2,7 +2,7 @@
       template: SinglePost
       title: verizon lg v50 thinq 5g 128gb black very good condition
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/WiIAAOSwGzBincTj/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Verizon ⭐ LG V50 ThinQ 5G 128GB Black ⭐ Very Good Condition from a well-known brand.This handheld device  is sure to be a Center of attention  in your home. [Click Here](https://www.ebay.com/itm/275340361312?hash=item401b907e60%3Ag%3AWiIAAOSwGzBincTj&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Verizon ⭐ LG V50 ThinQ 5G 128GB Black ⭐ Very Good Condition. Shipping cost is undefined.Here is the posting visibly ![Verizon ⭐ LG V50 ThinQ 5G 128GB Black ⭐ Very Good Condition](https://i.ebayimg.com/thumbs/images/g/WiIAAOSwGzBincTj/s-l225.jpg) to check out more postings here... ![Verizon ⭐ LG V50 ThinQ 5G 128GB Black ⭐ Very Good Condition](https://i.ebayimg.com/images/g/WiIAAOSwGzBincTj/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275340361312_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275340361312_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275340361312_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275340361312_5_0_1/225x225.jpg)'
+      Introducing th Verizon ⭐ LG V50 ThinQ 5G 128GB Black ⭐ Very Good Condition from a well-known brand.This Miniature device  is sure to be a Talking-point in your home. [Click Here](https://www.ebay.com/itm/275340361312?hash=item401b907e60%3Ag%3AWiIAAOSwGzBincTj&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Verizon ⭐ LG V50 ThinQ 5G 128GB Black ⭐ Very Good Condition. Shipping cost is undefined.Here is the posting visibly ![Verizon ⭐ LG V50 ThinQ 5G 128GB Black ⭐ Very Good Condition](https://i.ebayimg.com/thumbs/images/g/WiIAAOSwGzBincTj/s-l225.jpg) to check out more postings here... ![Verizon ⭐ LG V50 ThinQ 5G 128GB Black ⭐ Very Good Condition](https://i.ebayimg.com/images/g/WiIAAOSwGzBincTj/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275340361312_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275340361312_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275340361312_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275340361312_5_0_1/225x225.jpg)'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 6270 
+ - Feedback score - 6277 
 
 
       

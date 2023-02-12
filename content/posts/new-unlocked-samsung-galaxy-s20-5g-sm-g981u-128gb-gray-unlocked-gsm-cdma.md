@@ -2,7 +2,7 @@
       template: SinglePost
       title: new unlocked samsung galaxy s20 5g sm g981u 128gb gray unlocked gsm cdma
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/BAMAAOSwhQJhC3ty/s-l225.jpg'
       categories: 
 
@@ -16,7 +16,7 @@
         
 ---
 $
-    Outstanding performance, this Cell Phones & Smartphones device is available at a discounted price of 255.3168 after a 14% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/203549173526?hash=item2f6479e716%3Ag%3ABAMAAOSwhQJhC3ty&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the NEW UNLOCKED SAMSUNG GALAXY S20 5G SM-G981U 128GB GRAY UNLOCKED GSM+CDMA. The shipping cost is undefined.Product ImageNEW UNLOCKED SAMSUNG GALAXY S20 5G SM-G981U 128GB GRAY UNLOCKED GSM+CDMAAdditional ImagesNEW UNLOCKED SAMSUNG GALAXY S20 5G SM-G981U 128GB GRAY UNLOCKED GSM+CDMA, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/203549173526_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/203549173526_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/203549173526_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/203549173526_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/203549173526_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/203549173526_7_0_1/225x225.jpg)
+    User-approved, this Cell Phones & Smartphones device is available at a discounted price of 266.292 after a 10% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/203549173526?hash=item2f6479e716%3Ag%3ABAMAAOSwhQJhC3ty&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the NEW UNLOCKED SAMSUNG GALAXY S20 5G SM-G981U 128GB GRAY UNLOCKED GSM+CDMA. The shipping cost is undefined.Product ImageNEW UNLOCKED SAMSUNG GALAXY S20 5G SM-G981U 128GB GRAY UNLOCKED GSM+CDMAAdditional ImagesNEW UNLOCKED SAMSUNG GALAXY S20 5G SM-G981U 128GB GRAY UNLOCKED GSM+CDMA, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/203549173526_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/203549173526_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/203549173526_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/203549173526_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/203549173526_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/203549173526_7_0_1/225x225.jpg)
     
     
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 296.88 
+ - Listed Price- 295.88 
 
 
       
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 23860 
+ - Feedback score - 23866 
 
 
       

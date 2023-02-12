@@ -3,7 +3,7 @@
       title: sony ericsson xperia play r800i unlocked 512mb slider android game smartphone
       status: Published
       date: '2023-02-12'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/a5AAAOSwsjBji0Xd/s-l225.jpg'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/GGAAAOSw~k1ji0XR/s-l225.jpg'
        
 
       excerpt: >-
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Sony Ericsson Xperia PLAY R800i Unlocked 512MB Slider Android Game Smartphone from a well-known brand.This Mobile device  is sure to be a Visual-appeal in your home. [Click Here](https://www.ebay.com/itm/285124579820?hash=item4262bfd1ec%3Ag%3Aa5AAAOSwsjBji0Xd&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Ericsson Xperia PLAY R800i Unlocked 512MB Slider Android Game Smartphone. Shipping cost is undefined.Here is the posting visibly ![Sony Ericsson Xperia PLAY R800i Unlocked 512MB Slider Android Game Smartphone](https://i.ebayimg.com/thumbs/images/g/a5AAAOSwsjBji0Xd/s-l225.jpg) to check out more postings here... ![Sony Ericsson Xperia PLAY R800i Unlocked 512MB Slider Android Game Smartphone](https://i.ebayimg.com/images/g/a5AAAOSwsjBji0Xd/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/285124579820_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_12_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_13_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_14_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_15_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_16_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_17_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_18_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_19_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_20_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/285124579820_21_0_1/225x225.jpg)'
+      Introducing th Sony Ericsson Xperia PLAY R800i Unlocked 512MB Slider Android Game Smartphone from a well-known brand.This Compact size device  is sure to be a Display-center in your home. [Click Here](https://www.ebay.com/itm/144919637908?hash=item21bde22f94%3Ag%3AGGAAAOSw%7Ek1ji0XR&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Ericsson Xperia PLAY R800i Unlocked 512MB Slider Android Game Smartphone. Shipping cost is undefined.Here is the posting visibly ![Sony Ericsson Xperia PLAY R800i Unlocked 512MB Slider Android Game Smartphone](https://i.ebayimg.com/thumbs/images/g/GGAAAOSw~k1ji0XR/s-l225.jpg) to check out more postings here... ![Sony Ericsson Xperia PLAY R800i Unlocked 512MB Slider Android Game Smartphone](https://i.ebayimg.com/images/g/GGAAAOSw~k1ji0XR/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144919637908_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_12_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_13_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_14_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_15_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_16_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_17_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_18_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_19_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_20_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144919637908_21_0_1/225x225.jpg)'
 
       
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 96.00 
+ - Listed Price- 99.00 
 
 
       
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 148 
+ - Feedback score - 1277 
 
 
       

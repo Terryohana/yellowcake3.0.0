@@ -2,7 +2,7 @@
       template: SinglePost
       title: huawei p30 lite mar lx3a cellphone black 128gb telcel cracked rear glas
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/zGoAAOSwWlFj2nqm/s-l225.jpg'
       categories: 
 
@@ -16,7 +16,7 @@
         
 ---
 $
-    Market leader, this Cell Phones & Smartphones device is available at a discounted price of 78.3 after a 13% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/175595488162?hash=item28e24e83a2%3Ag%3AzGoAAOSwWlFj2nqm&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Huawei P30 Lite MAR-LX3A Cellphone (Black 128GB) Telcel CRACKED REAR GLAS. The shipping cost is undefined.Product ImageHuawei P30 Lite MAR-LX3A Cellphone (Black 128GB) Telcel CRACKED REAR GLASAdditional ImagesHuawei P30 Lite MAR-LX3A Cellphone (Black 128GB) Telcel CRACKED REAR GLAS, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175595488162_2_0_1/225x225.jpg)
+    High demand, this Cell Phones & Smartphones device is available at a discounted price of 81 after a 10% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/175595488162?hash=item28e24e83a2%3Ag%3AzGoAAOSwWlFj2nqm&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Huawei P30 Lite MAR-LX3A Cellphone (Black 128GB) Telcel CRACKED REAR GLAS. The shipping cost is undefined.Product ImageHuawei P30 Lite MAR-LX3A Cellphone (Black 128GB) Telcel CRACKED REAR GLASAdditional ImagesHuawei P30 Lite MAR-LX3A Cellphone (Black 128GB) Telcel CRACKED REAR GLAS, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175595488162_2_0_1/225x225.jpg)
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 79162 
+ - Feedback score - 79173 
 
 
       

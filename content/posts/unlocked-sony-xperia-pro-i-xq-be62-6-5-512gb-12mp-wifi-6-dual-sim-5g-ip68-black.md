@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Unlocked Sony Xperia PRO-I XQ-BE62 6.5" 512GB 12MP WiFi 6 Dual SIM 5G IP68 Black from a well-known brand.This Compact size device  is sure to be a Center of attention  in your home. [Click Here](https://www.ebay.com/itm/325185606294?hash=item4bb6929296%3Ag%3APrEAAOSwg9Bif9Si&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Unlocked Sony Xperia PRO-I XQ-BE62 6.5" 512GB 12MP WiFi 6 Dual SIM 5G IP68 Black. Shipping cost is undefined.Here is the posting visibly ![Unlocked Sony Xperia PRO-I XQ-BE62 6.5" 512GB 12MP WiFi 6 Dual SIM 5G IP68 Black](https://i.ebayimg.com/thumbs/images/g/PrEAAOSwg9Bif9Si/s-l225.jpg) to check out more postings here... ![Unlocked Sony Xperia PRO-I XQ-BE62 6.5" 512GB 12MP WiFi 6 Dual SIM 5G IP68 Black](https://i.ebayimg.com/images/g/PrEAAOSwg9Bif9Si/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325185606294_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325185606294_3_0_1/225x225.jpg)'
+      Introducing th Unlocked Sony Xperia PRO-I XQ-BE62 6.5" 512GB 12MP WiFi 6 Dual SIM 5G IP68 Black from a well-known brand.This Lightweight device  is sure to be a Guest-of-honor in your home. [Click Here](https://www.ebay.com/itm/325185606294?hash=item4bb6929296%3Ag%3APrEAAOSwg9Bif9Si&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Unlocked Sony Xperia PRO-I XQ-BE62 6.5" 512GB 12MP WiFi 6 Dual SIM 5G IP68 Black. Shipping cost is undefined.Here is the posting visibly ![Unlocked Sony Xperia PRO-I XQ-BE62 6.5" 512GB 12MP WiFi 6 Dual SIM 5G IP68 Black](https://i.ebayimg.com/thumbs/images/g/PrEAAOSwg9Bif9Si/s-l225.jpg) to check out more postings here... ![Unlocked Sony Xperia PRO-I XQ-BE62 6.5" 512GB 12MP WiFi 6 Dual SIM 5G IP68 Black](https://i.ebayimg.com/images/g/PrEAAOSwg9Bif9Si/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325185606294_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/325185606294_3_0_1/225x225.jpg)'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 133888 
+ - Feedback score - 133889 
 
 
       

@@ -16,7 +16,7 @@
 ---
 $
 
-Achieve your dreams Motorola Moto G Stylus  XT2043-4 - 128GB - Mystic indigo (Unlocked) Average - a 5-star Cell Phones & Smartphones device.
+Live life on the edge Motorola Moto G Stylus  XT2043-4 - 128GB - Mystic indigo (Unlocked) Average - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/364107630362?hash=item54c681871a%3Ag%3AnCUAAOSwJFpjD6jl&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Motorola Moto G Stylus  XT2043-4 - 128GB - Mystic indigo (Unlocked) Average. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/nCUAAOSwJFpjD6jl/s-l225.jpg)and the additional images are![Motorola Moto G Stylus  XT2043-4 - 128GB - Mystic indigo (Unlocked) Average](https://i.ebayimg.com/images/g/nCUAAOSwJFpjD6jl/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/364107630362_2_0_1/225x225.jpg)
 
 

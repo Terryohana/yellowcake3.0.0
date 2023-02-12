@@ -2,7 +2,7 @@
       template: SinglePost
       title: huawei y6 2019 mrd lx1 32gb blue unlocked smartphone clean imei 61584
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/uE4AAOSwTlJjUVsD/s-l225.jpg'
       categories: 
 
@@ -16,7 +16,7 @@
         
 ---
 $
-    Top-rated product, this Cell Phones & Smartphones device is available at a discounted price of 62.99099999999999 after a 10% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/144775192013?hash=item21b5461dcd%3Ag%3AuE4AAOSwTlJjUVsD&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Huawei Y6 2019 (MRD-LX1) 32GB - Blue (Unlocked) Smartphone Clean IMEI - 61584. The shipping cost is undefined.Product ImageHuawei Y6 2019 (MRD-LX1) 32GB - Blue (Unlocked) Smartphone Clean IMEI - 61584Additional ImagesHuawei Y6 2019 (MRD-LX1) 32GB - Blue (Unlocked) Smartphone Clean IMEI - 61584, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144775192013_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144775192013_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144775192013_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144775192013_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144775192013_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144775192013_7_0_1/225x225.jpg)
+    Widely accepted, this Cell Phones & Smartphones device is available at a discounted price of 60.191399999999994 after a 14% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/144775192013?hash=item21b5461dcd%3Ag%3AuE4AAOSwTlJjUVsD&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Huawei Y6 2019 (MRD-LX1) 32GB - Blue (Unlocked) Smartphone Clean IMEI - 61584. The shipping cost is undefined.Product ImageHuawei Y6 2019 (MRD-LX1) 32GB - Blue (Unlocked) Smartphone Clean IMEI - 61584Additional ImagesHuawei Y6 2019 (MRD-LX1) 32GB - Blue (Unlocked) Smartphone Clean IMEI - 61584, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144775192013_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144775192013_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144775192013_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144775192013_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144775192013_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144775192013_7_0_1/225x225.jpg)
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 38593 
+ - Feedback score - 38601 
 
 
       

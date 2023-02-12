@@ -16,7 +16,7 @@
 ---
 $
 
-Stay on top of things NEW! Google Pixel 7 | 128GB | 6.3" | 5G | All Colors | Unlocked All Carriers - a 5-star Cell Phones & Smartphones device.
+Experience life NEW! Google Pixel 7 | 128GB | 6.3" | 5G | All Colors | Unlocked All Carriers - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/165782213270?hash=item269963d296%3Ag%3APcgAAOSwXYFjh-H9&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the NEW! Google Pixel 7 | 128GB | 6.3" | 5G | All Colors | Unlocked All Carriers. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/PcgAAOSwXYFjh-H9/s-l225.jpg)and the additional images are![NEW! Google Pixel 7 | 128GB | 6.3" | 5G | All Colors | Unlocked All Carriers](https://i.ebayimg.com/images/g/PcgAAOSwXYFjh-H9/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/165782213270_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165782213270_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165782213270_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/165782213270_5_0_1/225x225.jpg)
 
 
@@ -33,7 +33,7 @@ $[Click Here](https://www.ebay.com/itm/165782213270?hash=item269963d296%3Ag%3APc
 
       
 
- - Listed Price- 449.98 
+ - Listed Price- 509.98 
 
 
       

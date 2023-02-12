@@ -2,7 +2,7 @@
       template: SinglePost
       title: huawei y9 2018 fla lx3 32gb blue gsm unlocked single sim cracked j9684
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/Il4AAOSw5~5j2T4w/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Be fearless Huawei Y9 2018 (FLA-LX3) 32GB - Blue (GSM Unlocked) Single SIM - CRACKED - J9684 - a 4-star Cell Phones & Smartphones device.
+Be in touch Huawei Y9 2018 (FLA-LX3) 32GB - Blue (GSM Unlocked) Single SIM - CRACKED - J9684 - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/144924565934?hash=item21be2d61ae%3Ag%3AIl4AAOSw5%7E5j2T4w&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Huawei Y9 2018 (FLA-LX3) 32GB - Blue (GSM Unlocked) Single SIM - CRACKED - J9684. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/Il4AAOSw5~5j2T4w/s-l225.jpg)and the additional images are![Huawei Y9 2018 (FLA-LX3) 32GB - Blue (GSM Unlocked) Single SIM - CRACKED - J9684](https://i.ebayimg.com/images/g/Il4AAOSw5~5j2T4w/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/144924565934_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144924565934_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144924565934_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144924565934_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144924565934_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144924565934_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/144924565934_8_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/144924565934?hash=item21be2d61ae%3Ag%3AIl
 
       
 
- - Feedback score - 38593 
+ - Feedback score - 38601 
 
 
       

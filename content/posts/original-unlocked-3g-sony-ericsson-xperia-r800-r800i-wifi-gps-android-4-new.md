@@ -3,7 +3,7 @@
       title: original unlocked 3g sony ericsson xperia r800 r800i wifi gps android 4 new
       status: Published
       date: '2023-02-12'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/rwIAAOSweF1dwSur/s-l225.jpg'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/ZkEAAOSww1FigxsH/s-l225.jpg'
       categories: 
 
       excerpt: >-
@@ -16,7 +16,7 @@
         
 ---
 $
-    High-standard product, this Cell Phones & Smartphones device is available at a discounted price of 60.1828 after a 14% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/303349536894?hash=item46a10a987e%3Ag%3ArwIAAOSweF1dwSur&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Original Unlocked 3G Sony Ericsson Xperia R800 R800i WIFI GPS Android  4" NEW. The shipping cost is undefined.Product ImageOriginal Unlocked 3G Sony Ericsson Xperia R800 R800i WIFI GPS Android  4" NEWAdditional ImagesOriginal Unlocked 3G Sony Ericsson Xperia R800 R800i WIFI GPS Android  4" NEW, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/303349536894_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/303349536894_3_0_1/225x225.jpg)
+    User-approved, this Cell Phones & Smartphones device is available at a discounted price of 83.66 after a 11% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/134121134745?hash=item1f3a3e1a99%3Ag%3AZkEAAOSww1FigxsH&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Original Unlocked 3G Sony Ericsson Xperia R800 R800i WIFI GPS Android 4" NEW. The shipping cost is undefined.Product ImageOriginal Unlocked 3G Sony Ericsson Xperia R800 R800i WIFI GPS Android 4" NEWAdditional ImagesOriginal Unlocked 3G Sony Ericsson Xperia R800 R800i WIFI GPS Android 4" NEW, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/134121134745_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134121134745_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134121134745_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134121134745_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134121134745_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134121134745_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134121134745_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134121134745_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134121134745_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134121134745_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/134121134745_12_0_1/225x225.jpg)
     
     
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 69.98 
+ - Listed Price- 94.00 
 
 
       
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 441 
+ - Feedback score - 179 
 
 
       

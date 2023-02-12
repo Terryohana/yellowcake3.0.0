@@ -16,7 +16,7 @@
 ---
 $
 
-Reach your goals Samsung Galaxy S10e 128gb G970U Factory Unlocked AT&T Verizon TMobile Open Box - a 4-star Cell Phones & Smartphones device.
+Seize the day Samsung Galaxy S10e 128gb G970U Factory Unlocked AT&T Verizon TMobile Open Box - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/133604085756?hash=item1f1b6c8ffc%3Ag%3APIcAAOSwSB1etYmY&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Samsung Galaxy S10e 128gb G970U Factory Unlocked AT&T Verizon TMobile Open Box. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/PIcAAOSwSB1etYmY/s-l225.jpg)and the additional images are![Samsung Galaxy S10e 128gb G970U Factory Unlocked AT&T Verizon TMobile Open Box](https://i.ebayimg.com/images/g/PIcAAOSwSB1etYmY/s-l960.jpg)![check vendor page]()
 
 

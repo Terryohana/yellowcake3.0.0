@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Sony Xperia 1 IV 512GB 5G Factory Unlocked Smartphone from a well-known brand.This Light device  is sure to be a Headlining-item in your home. [Click Here](https://www.ebay.com/itm/266053103382?hash=item3df2002f16%3Ag%3Ai-EAAOSwfa5jpLda&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Xperia 1 IV 512GB 5G Factory Unlocked Smartphone. Shipping cost is undefined.Here is the posting visibly ![Sony Xperia 1 IV 512GB 5G Factory Unlocked Smartphone](https://i.ebayimg.com/thumbs/images/g/i-EAAOSwfa5jpLda/s-l225.jpg) to check out more postings here... ![Sony Xperia 1 IV 512GB 5G Factory Unlocked Smartphone](https://i.ebayimg.com/images/g/i-EAAOSwfa5jpLda/s-l960.jpg), ![check vendor page]()'
+      Introducing th Sony Xperia 1 IV 512GB 5G Factory Unlocked Smartphone from a well-known brand.This Man-portable hand held device is sure to be a Conversation-center in your home. [Click Here](https://www.ebay.com/itm/266053103382?hash=item3df2002f16%3Ag%3Ai-EAAOSwfa5jpLda&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Sony Xperia 1 IV 512GB 5G Factory Unlocked Smartphone. Shipping cost is undefined.Here is the posting visibly ![Sony Xperia 1 IV 512GB 5G Factory Unlocked Smartphone](https://i.ebayimg.com/thumbs/images/g/i-EAAOSwfa5jpLda/s-l225.jpg) to check out more postings here... ![Sony Xperia 1 IV 512GB 5G Factory Unlocked Smartphone](https://i.ebayimg.com/images/g/i-EAAOSwfa5jpLda/s-l960.jpg), ![check vendor page]()'
 
       
 

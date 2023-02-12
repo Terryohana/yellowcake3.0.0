@@ -3,9 +3,8 @@
       title: google pixel 2xl black white 64gb gsm unlocked screen burn
       status: Published
       date: '2023-02-12'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/sKIAAOSwV51jtNpH/s-l225.jpg'
-       
-
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/sKIAAOSwV51jtNpH/s-l225.jpg
+      categories: 
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -13,12 +12,14 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-
+        
 ---
 $
-      Introducing th Google Pixel 2XL - Black/White  - 64GB - GSM Unlocked - Screen Burn from a well-known brand.This Cordless device  is sure to be a Eye-catcher in your home. [Click Here](https://www.ebay.com/itm/255910455131?hash=item3b9573a75b%3Ag%3AsKIAAOSwV51jtNpH&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Google Pixel 2XL - Black/White  - 64GB - GSM Unlocked - Screen Burn. Shipping cost is undefined.Here is the posting visibly ![Google Pixel 2XL - Black/White  - 64GB - GSM Unlocked - Screen Burn](https://i.ebayimg.com/thumbs/images/g/sKIAAOSwV51jtNpH/s-l225.jpg) to check out more postings here... ![Google Pixel 2XL - Black/White  - 64GB - GSM Unlocked - Screen Burn](https://i.ebayimg.com/images/g/sKIAAOSwV51jtNpH/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255910455131_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255910455131_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255910455131_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255910455131_5_0_1/225x225.jpg)'
 
-      
+Be the best you can be Google Pixel 2XL - Black/White  - 64GB - GSM Unlocked - Screen Burn - a 4-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/255910455131?hash=item3b9573a75b%3Ag%3AsKIAAOSwV51jtNpH&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Google Pixel 2XL - Black/White  - 64GB - GSM Unlocked - Screen Burn. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/sKIAAOSwV51jtNpH/s-l225.jpg)and the additional images are![Google Pixel 2XL - Black/White  - 64GB - GSM Unlocked - Screen Burn](https://i.ebayimg.com/images/g/sKIAAOSwV51jtNpH/s-l1200.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255910455131_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255910455131_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255910455131_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255910455131_5_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -58,4 +59,5 @@ $
 
 
 
-      -
+
+

@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Apple iPhone 12 64GB 128GB 256GB GSM UNLOCKED, VERIZON UNLOCKED Fair from a well-known brand.This handheld smartphone is sure to be a Conversation-starter in your home. [Click Here](https://www.ebay.com/itm/294362367857?hash=item44895d4771%3Ag%3AevMAAOSwleVhKadz&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Apple iPhone 12 64GB 128GB 256GB GSM UNLOCKED, VERIZON UNLOCKED Fair. Shipping cost is undefined.Here is the posting visibly ![Apple iPhone 12 64GB 128GB 256GB GSM UNLOCKED, VERIZON UNLOCKED Fair](https://i.ebayimg.com/thumbs/images/g/evMAAOSwleVhKadz/s-l225.jpg) to check out more postings here... ![Apple iPhone 12 64GB 128GB 256GB GSM UNLOCKED, VERIZON UNLOCKED Fair](https://i.ebayimg.com/images/g/evMAAOSwleVhKadz/s-l1600.jpg), ![check vendor page]()'
+      Introducing th Apple iPhone 12 64GB 128GB 256GB GSM UNLOCKED, VERIZON UNLOCKED Fair from a well-known brand.This Man-portable device  is sure to be a Room-accent in your home. [Click Here](https://www.ebay.com/itm/294362367857?hash=item44895d4771%3Ag%3AevMAAOSwleVhKadz&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Apple iPhone 12 64GB 128GB 256GB GSM UNLOCKED, VERIZON UNLOCKED Fair. Shipping cost is undefined.Here is the posting visibly ![Apple iPhone 12 64GB 128GB 256GB GSM UNLOCKED, VERIZON UNLOCKED Fair](https://i.ebayimg.com/thumbs/images/g/evMAAOSwleVhKadz/s-l225.jpg) to check out more postings here... ![Apple iPhone 12 64GB 128GB 256GB GSM UNLOCKED, VERIZON UNLOCKED Fair](https://i.ebayimg.com/images/g/evMAAOSwleVhKadz/s-l1600.jpg), ![check vendor page]()'
 
       
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 349.99 
+ - Listed Price- 339.99 
 
 
       

@@ -3,22 +3,23 @@
       title: samsung galaxy s8 g950u 64gb unlocked shaded very good 
       status: Published
       date: '2023-02-12'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/qFUAAOSwI-9iTIQA/s-l225.jpg'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/qFUAAOSwI-9iTIQA/s-l225.jpg
       categories: 
-
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-
+      
         
 ---
 $
-    Widely accepted, this Cell Phones & Smartphones device is available at a discounted price of 89.991 after a 10% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/403585887796?hash=item5df797ee34%3Ag%3AqFUAAOSwI-9iTIQA&amdata=enc%3AAQAHAAAA4I10BgGdUiEbSWNfZRdS%2FQFosDe%2FXIvSURj3Ry0DKjWgVzeKU1ZqMVJXmpVDJgq3HqZa6nVZieK1WxWZWY17FzxvQC17IuRjaEsCtnEWwgtxh3HTf55PJ97wGVOjDEZ5TXwG2p7pWpj09MpNFuFfaZVH%2F5%2FfX1aRBykDv4%2FzGus0IdqRhF1oWeGLFfM6gUWVHRZqmdEX7SEK89cJjJmtRBA1CgGVfWi8pSgMhHvPnSTYEqgrbbS7bzNX293WIxC6pgmXnHVdtSFXzY2zfYuqdKrqfvBTSgpzWi2J87irb8v7&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Galaxy S8 G950U 64GB  UNLOCKED (SHADED) (VERY GOOD). The shipping cost is undefined.Product ImageSamsung Galaxy S8 G950U 64GB  UNLOCKED (SHADED) (VERY GOOD)Additional ImagesSamsung Galaxy S8 G950U 64GB  UNLOCKED (SHADED) (VERY GOOD), check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/403585887796_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/403585887796_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/403585887796_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/403585887796_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/403585887796_6_0_1/225x225.jpg)
-    
-    
+
+Be daring Samsung Galaxy S8 G950U 64GB  UNLOCKED (SHADED) (VERY GOOD) - a 2-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/403585887796?hash=item5df797ee34%3Ag%3AqFUAAOSwI-9iTIQA&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Samsung Galaxy S8 G950U 64GB  UNLOCKED (SHADED) (VERY GOOD). Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/qFUAAOSwI-9iTIQA/s-l225.jpg)and the additional images are![Samsung Galaxy S8 G950U 64GB  UNLOCKED (SHADED) (VERY GOOD)](https://i.ebayimg.com/images/g/qFUAAOSwI-9iTIQA/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/403585887796_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/403585887796_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/403585887796_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/403585887796_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/403585887796_6_0_1/225x225.jpg)
+
+
 
  ## Technical Facts 
 
@@ -57,8 +58,6 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+
+

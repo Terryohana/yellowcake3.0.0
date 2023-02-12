@@ -1,0 +1,63 @@
+---
+      template: SinglePost
+      title: phone case for lg phoenix 4 phoenix 3 lg fortune 2 brush magnetic stand cover 
+      status: Published
+      date: '2023-02-12'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/Y0gAAOSwRDJcKG9l/s-l225.jpg
+      categories: 
+      excerpt: >-
+        [smartphone,device ,hand held device]
+      meta:
+      canonicalLink: ''
+      description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
+      noindex: false
+      
+        
+---
+$
+
+Stay connected with Phone Case For LG Phoenix 4, Phoenix 3, LG Fortune 2 Brush Magnetic Stand Cover  - a 5-star Cases, Covers & Skins device.
+$[Click Here](https://www.ebay.com/itm/312406857127?hash=item48bce655a7%3Ag%3AY0gAAOSwRDJcKG9l&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Phone Case For LG Phoenix 4, Phoenix 3, LG Fortune 2 Brush Magnetic Stand Cover . Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/Y0gAAOSwRDJcKG9l/s-l225.jpg)and the additional images are![Phone Case For LG Phoenix 4, Phoenix 3, LG Fortune 2 Brush Magnetic Stand Cover ](https://i.ebayimg.com/images/g/Y0gAAOSwRDJcKG9l/s-l500.jpg)![check vendor page]()
+
+
+
+ ## Technical Facts 
+
+
+
+     
+      
+
+ - Condition- New 
+
+
+      
+
+ - Listed Price- 8.49 
+
+
+      
+
+ - Currency- USD 
+
+
+      
+
+ - Feedback score - 79216 
+
+
+      
+
+ - Location - US 
+
+
+      
+      
+
+ *_This post may contain affiliate links from eBay and other third-party websites. As an eBay affiliate, we earn from qualifying purchases. Although we do our best to keep the information up-to-date and accurate, please check the date and all details with the vendor's website before making a purchase. Not all data may be accurate._*
+
+
+
+
+
+

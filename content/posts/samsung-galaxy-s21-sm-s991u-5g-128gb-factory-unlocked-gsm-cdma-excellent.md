@@ -2,7 +2,7 @@
       template: SinglePost
       title: samsung galaxy s21 sm s991u 5g 128gb factory unlocked gsm cdma excellent
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/YNMAAOSwVbRjhsqa/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Samsung Galaxy S21 SM-S991U- 5G - 128GB FACTORY Unlocked GSM+CDMA EXCELLENT from a well-known brand.This industrially made smartphone is sure to be a Decorative-statement in your home. [Click Here](https://www.ebay.com/itm/125641047454?hash=item1d40ca3d9e%3Ag%3AYNMAAOSwVbRjhsqa&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Samsung Galaxy S21 SM-S991U- 5G - 128GB FACTORY Unlocked GSM+CDMA EXCELLENT. Shipping cost is undefined.Here is the posting visibly ![Samsung Galaxy S21 SM-S991U- 5G - 128GB FACTORY Unlocked GSM+CDMA EXCELLENT](https://i.ebayimg.com/thumbs/images/g/YNMAAOSwVbRjhsqa/s-l225.jpg) to check out more postings here... ![Samsung Galaxy S21 SM-S991U- 5G - 128GB FACTORY Unlocked GSM+CDMA EXCELLENT](https://i.ebayimg.com/images/g/YNMAAOSwVbRjhsqa/s-l1600.jpg), ![check vendor page]()'
+      Introducing th Samsung Galaxy S21 SM-S991U- 5G - 128GB FACTORY Unlocked GSM+CDMA EXCELLENT from a well-known brand.This Pocket-sized hand held device is sure to be a Main-event in your home. [Click Here](https://www.ebay.com/itm/125641047454?hash=item1d40ca3d9e%3Ag%3AYNMAAOSwVbRjhsqa&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Samsung Galaxy S21 SM-S991U- 5G - 128GB FACTORY Unlocked GSM+CDMA EXCELLENT. Shipping cost is undefined.Here is the posting visibly ![Samsung Galaxy S21 SM-S991U- 5G - 128GB FACTORY Unlocked GSM+CDMA EXCELLENT](https://i.ebayimg.com/thumbs/images/g/YNMAAOSwVbRjhsqa/s-l225.jpg) to check out more postings here... ![Samsung Galaxy S21 SM-S991U- 5G - 128GB FACTORY Unlocked GSM+CDMA EXCELLENT](https://i.ebayimg.com/images/g/YNMAAOSwVbRjhsqa/s-l1200.jpg), ![check vendor page]()'
 
       
 
@@ -32,7 +32,7 @@ $
 
       
 
- - Listed Price- 298.88 
+ - Listed Price- 278.88 
 
 
       
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 65839 
+ - Feedback score - 65856 
 
 
       

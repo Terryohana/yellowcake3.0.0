@@ -2,7 +2,7 @@
       template: SinglePost
       title: lg stylo 6 lm q730 64gb glow t mobile unlocked a05469 
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/nrgAAOSwQeJjxlG3/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Stay on top of things LG Stylo 6 - LM-Q730 - 64GB - Glow (T-Mobile - Unlocked) (a05469) - a 3-star Cell Phones & Smartphones device.
+Be inspired LG Stylo 6 - LM-Q730 - 64GB - Glow (T-Mobile - Unlocked) (a05469) - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/266045627090?hash=item3df18e1ad2%3Ag%3AnrgAAOSwQeJjxlG3&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the LG Stylo 6 - LM-Q730 - 64GB - Glow (T-Mobile - Unlocked) (a05469). Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/nrgAAOSwQeJjxlG3/s-l225.jpg)and the additional images are![LG Stylo 6 - LM-Q730 - 64GB - Glow (T-Mobile - Unlocked) (a05469)](https://i.ebayimg.com/images/g/nrgAAOSwQeJjxlG3/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/266045627090_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/266045627090_3_0_1/225x225.jpg)
 
 
@@ -33,7 +33,7 @@ $[Click Here](https://www.ebay.com/itm/266045627090?hash=item3df18e1ad2%3Ag%3Anr
 
       
 
- - Listed Price- 40.27 
+ - Listed Price- 39.87 
 
 
       
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/266045627090?hash=item3df18e1ad2%3Ag%3Anr
 
       
 
- - Feedback score - 21042 
+ - Feedback score - 21043 
 
 
       

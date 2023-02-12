@@ -16,7 +16,7 @@
         
 ---
 $
-    Premium quality, this Cell Phones & Smartphones device is available at a discounted price of 305.991 after a 10% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/225027799927?hash=item3464b3bb77%3Ag%3A-0QAAOSw-cpipltH&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony XPERIA 10 IV XQ-CC72 128GB 6GB RAM Dual SIM (FACTORY UNLOCKED) 6.0". The shipping cost is undefined.Product ImageSony XPERIA 10 IV XQ-CC72 128GB 6GB RAM Dual SIM (FACTORY UNLOCKED) 6.0"Additional ImagesSony XPERIA 10 IV XQ-CC72 128GB 6GB RAM Dual SIM (FACTORY UNLOCKED) 6.0", check vendor page, ![check vendor page]()
+    Preferred by professionals, this Cell Phones & Smartphones device is available at a discounted price of 295.7913 after a 13% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/225027799927?hash=item3464b3bb77%3Ag%3A-0QAAOSw-cpipltH&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony XPERIA 10 IV XQ-CC72 128GB 6GB RAM Dual SIM (FACTORY UNLOCKED) 6.0". The shipping cost is undefined.Product ImageSony XPERIA 10 IV XQ-CC72 128GB 6GB RAM Dual SIM (FACTORY UNLOCKED) 6.0"Additional ImagesSony XPERIA 10 IV XQ-CC72 128GB 6GB RAM Dual SIM (FACTORY UNLOCKED) 6.0", check vendor page, ![check vendor page]()
     
     
 

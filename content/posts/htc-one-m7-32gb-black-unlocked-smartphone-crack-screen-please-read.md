@@ -16,7 +16,7 @@
 ---
 $
 
-Stay on top of things HTC One M7 - 32GB - Black (Unlocked) Smartphone Crack Screen Please Read - a 3-star Cell Phones & Smartphones device.
+Be in touch HTC One M7 - 32GB - Black (Unlocked) Smartphone Crack Screen Please Read - a 5-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/255966582190?hash=item3b98cc15ae%3Ag%3AI%7EIAAOSw4TZjyljM&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the HTC One M7 - 32GB - Black (Unlocked) Smartphone Crack Screen Please Read. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/I~IAAOSw4TZjyljM/s-l225.jpg)and the additional images are![HTC One M7 - 32GB - Black (Unlocked) Smartphone Crack Screen Please Read](https://i.ebayimg.com/images/g/I~IAAOSw4TZjyljM/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255966582190_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255966582190_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255966582190_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/255966582190_5_0_1/225x225.jpg)
 
 

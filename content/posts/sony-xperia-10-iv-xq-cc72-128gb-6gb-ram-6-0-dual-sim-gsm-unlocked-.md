@@ -16,7 +16,7 @@
         
 ---
 $
-    High-standard product, this Cell Phones & Smartphones device is available at a discounted price of 323.3514 after a 14% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/255591411463?hash=item3b826f6f07%3Ag%3ASGcAAOSwZZ5isDFK&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony XPERIA 10 IV XQ-CC72 128GB 6GB RAM 6.0"  Dual Sim (GSM UNLOCKED) . The shipping cost is undefined.Product ImageSony XPERIA 10 IV XQ-CC72 128GB 6GB RAM 6.0"  Dual Sim (GSM UNLOCKED) Additional ImagesSony XPERIA 10 IV XQ-CC72 128GB 6GB RAM 6.0"  Dual Sim (GSM UNLOCKED) , check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255591411463_2_0_1/225x225.jpg)
+    Preferred by professionals, this Cell Phones & Smartphones device is available at a discounted price of 338.391 after a 10% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/255591411463?hash=item3b826f6f07%3Ag%3ASGcAAOSwZZ5isDFK&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony XPERIA 10 IV XQ-CC72 128GB 6GB RAM 6.0"  Dual Sim (GSM UNLOCKED) . The shipping cost is undefined.Product ImageSony XPERIA 10 IV XQ-CC72 128GB 6GB RAM 6.0"  Dual Sim (GSM UNLOCKED) Additional ImagesSony XPERIA 10 IV XQ-CC72 128GB 6GB RAM 6.0"  Dual Sim (GSM UNLOCKED) , check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/255591411463_2_0_1/225x225.jpg)
     
     
 

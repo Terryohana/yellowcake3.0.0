@@ -2,7 +2,7 @@
       template: SinglePost
       title: huawei p40 lite 128gb 8gb dual sim unlocked android global cellphone new sealed
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/7H0AAOSwh8djx85W/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Huawei P40 lite 128GB+8GB Dual Sim Unlocked Android Global CellPhone -New Sealed from a well-known brand.This Compact size device  is sure to be a Talking-point in your home. [Click Here](https://www.ebay.com/itm/385359440707?hash=item59b9366b43%3Ag%3A7H0AAOSwh8djx85W&amdata=enc%3AAQAHAAAA4DRXJf5jqkzAYjzRkZLRAAYNrvgVe%2BDdpnyjh4jR9CdTmaIHgUXgOHl3LI3trKsmLfsV1m88KxO7iRMin%2F2ZQEg6p90BdbZnFhiET7ulVJwNozn26%2B7fHArV3yR%2FNNF%2B97Y5LF%2BctkArlyyWMk%2FMuZulqURRuG6Cwwj34KDWREPo53q9lTZ8vEyOhc3E6SjnKiYWJ9RPv9id498%2FAKFMjSVDWz7I%2Fydo52fcAA5An4LlxcmCiT9TNozJFjHfztXZgNagv6n8GvzJYYiBDxWIez%2BIGbkF7y%2BAsn9odZZuPwCj&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Huawei P40 lite 128GB+8GB Dual Sim Unlocked Android Global CellPhone -New Sealed. Shipping cost is undefined.Here is the posting visibly ![Huawei P40 lite 128GB+8GB Dual Sim Unlocked Android Global CellPhone -New Sealed](https://i.ebayimg.com/thumbs/images/g/7H0AAOSwh8djx85W/s-l225.jpg) to check out more postings here... ![Huawei P40 lite 128GB+8GB Dual Sim Unlocked Android Global CellPhone -New Sealed](https://i.ebayimg.com/images/g/7H0AAOSwh8djx85W/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/385359440707_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_12_0_1/225x225.jpg)'
+      Introducing th Huawei P40 lite 128GB+8GB Dual Sim Unlocked Android Global CellPhone -New Sealed from a well-known brand.This Convenient smartphone is sure to be a Display-feature in your home. [Click Here](https://www.ebay.com/itm/385359440707?hash=item59b9366b43%3Ag%3A7H0AAOSwh8djx85W&amdata=enc%3AAQAHAAAA4DRXJf5jqkzAYjzRkZLRAAYNrvgVe%2BDdpnyjh4jR9CdTmaIHgUXgOHl3LI3trKsmLfsV1m88KxO7iRMin%2F2ZQEg6p90BdbZnFhiET7ulVJwNozn26%2B7fHArV3yR%2FNNF%2B974p6cupAg1ZgW5knt6uVQtqWGpc4MlpOpbbHcyYs4uFuj6XHXBqV9wDlKZm0R3%2B4Ey0lLKUqqiLU%2F1J58GPaCOXQbYzUkwHSnq%2FTlQo82tE6XznfAZbef6YTmGAUR8g4rRpM8kvnHiGwHpN33yn4Y3v2gbNOtYITd8xarThsa2G&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Huawei P40 lite 128GB+8GB Dual Sim Unlocked Android Global CellPhone -New Sealed. Shipping cost is undefined.Here is the posting visibly ![Huawei P40 lite 128GB+8GB Dual Sim Unlocked Android Global CellPhone -New Sealed](https://i.ebayimg.com/thumbs/images/g/7H0AAOSwh8djx85W/s-l225.jpg) to check out more postings here... ![Huawei P40 lite 128GB+8GB Dual Sim Unlocked Android Global CellPhone -New Sealed](https://i.ebayimg.com/images/g/7H0AAOSwh8djx85W/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/385359440707_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/385359440707_12_0_1/225x225.jpg)'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 28 
+ - Feedback score - 29 
 
 
       

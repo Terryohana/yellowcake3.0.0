@@ -2,23 +2,24 @@
       template: SinglePost
       title: lg g8 thinq 128gb sprint t mobile metro pcs silver black excellent
       status: Published
-      date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/cWUAAOSw9lBikplt/s-l225.jpg'
+      date: '2023-02-12'
+      featuredImage: https://i.ebayimg.com/thumbs/images/g/cWUAAOSw9lBikplt/s-l225.jpg
       categories: 
-
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-
+      
         
 ---
 $
-    Most trusted name, this Cell Phones & Smartphones device is available at a discounted price of 78.2565 after a 13% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/265546989527?hash=item3dd3d57fd7%3Ag%3AcWUAAOSw9lBikplt&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the LG G8 ThinQ 128GB Sprint & T-Mobile Metro PCS, Silver/Black Excellent. The shipping cost is undefined.Product ImageLG G8 ThinQ 128GB Sprint & T-Mobile Metro PCS, Silver/Black ExcellentAdditional ImagesLG G8 ThinQ 128GB Sprint & T-Mobile Metro PCS, Silver/Black Excellent, check vendor page, ![check vendor page]()
-    
-    
+
+Be ahead of the curve LG G8 ThinQ 128GB Sprint & T-Mobile Metro PCS, Silver/Black Excellent - a 3-star Cell Phones & Smartphones device.
+$[Click Here](https://www.ebay.com/itm/265546989527?hash=item3dd3d57fd7%3Ag%3AcWUAAOSw9lBikplt&amdata=enc%3AAQAHAAAA0Aj4KD7Paf3vRtdY0QaGOiKzyiPooeKMMLPdrFfW7da2HUJykzUD2nNUChtJO%2Fzg0cPWEWofLgsYZ3wDw6A9lCZdJ86yT3GYibDARafoS%2Bye8hq7x92cpiEHaly7Bhhno5FpWv5%2BZJRXsz37ZQfZwhrgXKMjn0Wgs4L2QN4TPfhmc8B3qvxpOyC3n8QcGiww%2BHcWdMPquh4bX2uDvSTI7UYZwDPu4Ezkk7bxyu6U5dSojMyWO1lAiA0vqoPRmh6OFU3OdHw2OwS8L3sKKxNrw9Q%3D&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the LG G8 ThinQ 128GB Sprint & T-Mobile Metro PCS, Silver/Black Excellent. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/cWUAAOSw9lBikplt/s-l225.jpg)and the additional images are![LG G8 ThinQ 128GB Sprint & T-Mobile Metro PCS, Silver/Black Excellent](https://i.ebayimg.com/images/g/cWUAAOSw9lBikplt/s-l1200.jpg)![check vendor page]()
+
+
 
  ## Technical Facts 
 
@@ -42,7 +43,7 @@ $
 
       
 
- - Feedback score - 9440 
+ - Feedback score - 9444 
 
 
       
@@ -57,8 +58,6 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+
+

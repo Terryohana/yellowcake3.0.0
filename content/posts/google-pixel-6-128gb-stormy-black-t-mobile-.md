@@ -16,7 +16,7 @@
         
 ---
 $
-    Proven success, this Cell Phones & Smartphones device is available at a discounted price of 131.5714 after a 14% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/134439826056?hash=item1f4d3cf288%3Ag%3Abt4AAOSwqedjr06a&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Google Pixel 6 - 128GB - Stormy Black (T-Mobile). The shipping cost is undefined.Product ImageGoogle Pixel 6 - 128GB - Stormy Black (T-Mobile)Additional ImagesGoogle Pixel 6 - 128GB - Stormy Black (T-Mobile), check vendor page, ![check vendor page]()
+    Proven success, this Cell Phones & Smartphones device is available at a discounted price of 133.1013 after a 13% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/134439826056?hash=item1f4d3cf288%3Ag%3Abt4AAOSwqedjr06a&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Google Pixel 6 - 128GB - Stormy Black (T-Mobile). The shipping cost is undefined.Product ImageGoogle Pixel 6 - 128GB - Stormy Black (T-Mobile)Additional ImagesGoogle Pixel 6 - 128GB - Stormy Black (T-Mobile), check vendor page, ![check vendor page]()
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 112120 
+ - Feedback score - 112121 
 
 
       

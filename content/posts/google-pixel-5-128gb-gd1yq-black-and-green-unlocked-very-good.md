@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Google Pixel 5 - 128GB - GD1YQ - Black and Green - (Unlocked) - Very Good from a well-known brand.This Light smartphone is sure to be a Display-item in your home. [Click Here](https://www.ebay.com/itm/175437518130?hash=item28d8e41532%3Ag%3Aev0AAOSwBklhlyEw&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Google Pixel 5 - 128GB - GD1YQ - Black and Green - (Unlocked) - Very Good. Shipping cost is undefined.Here is the posting visibly ![Google Pixel 5 - 128GB - GD1YQ - Black and Green - (Unlocked) - Very Good](https://i.ebayimg.com/thumbs/images/g/ev0AAOSwBklhlyEw/s-l225.jpg) to check out more postings here... ![Google Pixel 5 - 128GB - GD1YQ - Black and Green - (Unlocked) - Very Good](https://i.ebayimg.com/images/g/ev0AAOSwBklhlyEw/s-l960.jpg), ![check vendor page]()'
+      Introducing th Google Pixel 5 - 128GB - GD1YQ - Black and Green - (Unlocked) - Very Good from a well-known brand.This Maneuverable hand held device is sure to be a Unique-item in your home. [Click Here](https://www.ebay.com/itm/175437518130?hash=item28d8e41532%3Ag%3Aev0AAOSwBklhlyEw&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Google Pixel 5 - 128GB - GD1YQ - Black and Green - (Unlocked) - Very Good. Shipping cost is undefined.Here is the posting visibly ![Google Pixel 5 - 128GB - GD1YQ - Black and Green - (Unlocked) - Very Good](https://i.ebayimg.com/thumbs/images/g/ev0AAOSwBklhlyEw/s-l225.jpg) to check out more postings here... ![Google Pixel 5 - 128GB - GD1YQ - Black and Green - (Unlocked) - Very Good](https://i.ebayimg.com/images/g/ev0AAOSwBklhlyEw/s-l960.jpg), ![check vendor page]()'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 121889 
+ - Feedback score - 121893 
 
 
       

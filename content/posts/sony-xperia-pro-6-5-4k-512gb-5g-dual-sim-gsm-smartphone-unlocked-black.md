@@ -16,7 +16,7 @@
 ---
 $
 
-Be inspired Sony Xperia PRO 6.5" 4K 512GB 5G Dual-SIM GSM Smartphone, Unlocked, Black - a 4-star Cell Phones & Smartphones device.
+Stay connected with Sony Xperia PRO 6.5" 4K 512GB 5G Dual-SIM GSM Smartphone, Unlocked, Black - a 1-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/314153315617?hash=item4924ff2d21%3Ag%3AEOsAAOSwrQNjKHFe&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Sony Xperia PRO 6.5" 4K 512GB 5G Dual-SIM GSM Smartphone, Unlocked, Black. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/EOsAAOSwrQNjKHFe/s-l225.jpg)and the additional images are![Sony Xperia PRO 6.5" 4K 512GB 5G Dual-SIM GSM Smartphone, Unlocked, Black](https://i.ebayimg.com/images/g/EOsAAOSwrQNjKHFe/s-l1600.jpg)![check vendor page]()
 
 

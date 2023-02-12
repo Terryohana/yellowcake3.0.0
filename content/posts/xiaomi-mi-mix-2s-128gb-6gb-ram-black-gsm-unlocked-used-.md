@@ -2,7 +2,7 @@
       template: SinglePost
       title: xiaomi mi mix 2s 128gb 6gb ram black gsm unlocked used 
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/dL4AAOSw4btj4qaG/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Xiaomi Mi MIX 2S 128GB 6GB RAM Black GSM Unlocked (USED) from a well-known brand.This On-the-go hand held device is sure to be a Subject-of-interest in your home. [Click Here](https://www.ebay.com/itm/325527189694?hash=item4bcaeeb8be%3Ag%3AdL4AAOSw4btj4qaG&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Xiaomi Mi MIX 2S 128GB 6GB RAM Black GSM Unlocked (USED). Shipping cost is undefined.Here is the posting visibly ![Xiaomi Mi MIX 2S 128GB 6GB RAM Black GSM Unlocked (USED)](https://i.ebayimg.com/thumbs/images/g/dL4AAOSw4btj4qaG/s-l225.jpg) to check out more postings here... ![Xiaomi Mi MIX 2S 128GB 6GB RAM Black GSM Unlocked (USED)](https://i.ebayimg.com/images/g/dL4AAOSw4btj4qaG/s-l960.jpg), ![check vendor page]()'
+      Introducing th Xiaomi Mi MIX 2S 128GB 6GB RAM Black GSM Unlocked (USED) from a well-known brand.This Mobile device smartphone is sure to be a Artistic-touch in your home. [Click Here](https://www.ebay.com/itm/325527189694?hash=item4bcaeeb8be%3Ag%3AdL4AAOSw4btj4qaG&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Xiaomi Mi MIX 2S 128GB 6GB RAM Black GSM Unlocked (USED). Shipping cost is undefined.Here is the posting visibly ![Xiaomi Mi MIX 2S 128GB 6GB RAM Black GSM Unlocked (USED)](https://i.ebayimg.com/thumbs/images/g/dL4AAOSw4btj4qaG/s-l225.jpg) to check out more postings here... ![Xiaomi Mi MIX 2S 128GB 6GB RAM Black GSM Unlocked (USED)](https://i.ebayimg.com/images/g/dL4AAOSw4btj4qaG/s-l960.jpg), ![check vendor page]()'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 6301 
+ - Feedback score - 6305 
 
 
       

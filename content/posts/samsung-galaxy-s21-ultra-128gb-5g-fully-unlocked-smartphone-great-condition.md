@@ -2,24 +2,23 @@
       template: SinglePost
       title: samsung galaxy s21 ultra 128gb 5g fully unlocked smartphone great condition
       status: Published
-      date: '2023-02-11'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/uc8AAOSw1kJjpxQH/s-l225.jpg
+      date: '2023-02-12'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/uc8AAOSw1kJjpxQH/s-l225.jpg'
       categories: 
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
-      
+
         
 ---
 $
-
-Be bold Samsung Galaxy S21 ULTRA 128GB 5G FULLY UNLOCKED Smartphone -GREAT CONDITION - a 4-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/225315570212?hash=item3475dac224%3Ag%3Auc8AAOSw1kJjpxQH&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Samsung Galaxy S21 ULTRA 128GB 5G FULLY UNLOCKED Smartphone -GREAT CONDITION. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/uc8AAOSw1kJjpxQH/s-l225.jpg)and the additional images are![Samsung Galaxy S21 ULTRA 128GB 5G FULLY UNLOCKED Smartphone -GREAT CONDITION](https://i.ebayimg.com/images/g/uc8AAOSw1kJjpxQH/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/225315570212_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225315570212_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225315570212_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225315570212_5_0_1/225x225.jpg)
-
-
+    Featured in media, this Cell Phones & Smartphones device is available at a discounted price of 344.52 after a 13% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/225315570212?hash=item3475dac224%3Ag%3Auc8AAOSw1kJjpxQH&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Galaxy S21 ULTRA 128GB 5G FULLY UNLOCKED Smartphone -GREAT CONDITION. The shipping cost is undefined.Product ImageSamsung Galaxy S21 ULTRA 128GB 5G FULLY UNLOCKED Smartphone -GREAT CONDITIONAdditional ImagesSamsung Galaxy S21 ULTRA 128GB 5G FULLY UNLOCKED Smartphone -GREAT CONDITION, check vendor page, ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/225315570212_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225315570212_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225315570212_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/225315570212_5_0_1/225x225.jpg)
+    
+    
 
  ## Technical Facts 
 
@@ -43,7 +42,7 @@ $[Click Here](https://www.ebay.com/itm/225315570212?hash=item3475dac224%3Ag%3Auc
 
       
 
- - Feedback score - 14888 
+ - Feedback score - 14890 
 
 
       
@@ -58,6 +57,8 @@ $[Click Here](https://www.ebay.com/itm/225315570212?hash=item3475dac224%3Ag%3Auc
 
 
 
-
-
-
+    
+    
+    
+    
+    

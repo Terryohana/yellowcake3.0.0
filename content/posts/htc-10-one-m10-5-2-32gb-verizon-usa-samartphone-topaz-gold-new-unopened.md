@@ -2,7 +2,7 @@
       template: SinglePost
       title: htc 10 one m10 5 2 32gb verizon usa samartphone topaz gold new unopened
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/kNsAAOSwOkZjq4dB/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Stay ahead of the game HTC 10 (ONE M10) 5.2" 32GB ( Verizon USA) Samartphone/Topaz Gold -New UNOPENED - a 1-star Cell Phones & Smartphones device.
+Be inspired HTC 10 (ONE M10) 5.2" 32GB ( Verizon USA) Samartphone/Topaz Gold -New UNOPENED - a 3-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/385318245984?hash=item59b6c1d660%3Ag%3AkNsAAOSwOkZjq4dB&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the HTC 10 (ONE M10) 5.2" 32GB ( Verizon USA) Samartphone/Topaz Gold -New UNOPENED. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/kNsAAOSwOkZjq4dB/s-l225.jpg)and the additional images are![HTC 10 (ONE M10) 5.2" 32GB ( Verizon USA) Samartphone/Topaz Gold -New UNOPENED](https://i.ebayimg.com/images/g/kNsAAOSwOkZjq4dB/s-l960.jpg)![check vendor page]()
 
 

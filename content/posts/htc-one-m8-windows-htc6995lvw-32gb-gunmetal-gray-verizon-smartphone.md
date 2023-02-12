@@ -16,7 +16,7 @@
 ---
 $
 
-Experience life HTC One M8 Windows HTC6995LVW- 32GB - Gunmetal Gray (Verizon) Smartphone - a 1-star Cell Phones & Smartphones device.
+Be fashionable HTC One M8 Windows HTC6995LVW- 32GB - Gunmetal Gray (Verizon) Smartphone - a 1-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/234372490547?hash=item3691b06533%3Ag%3AmYwAAOSw6oVh3V%7E0&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the HTC One M8 Windows HTC6995LVW- 32GB - Gunmetal Gray (Verizon) Smartphone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/mYwAAOSw6oVh3V~0/s-l225.jpg)and the additional images are![HTC One M8 Windows HTC6995LVW- 32GB - Gunmetal Gray (Verizon) Smartphone](https://i.ebayimg.com/images/g/mYwAAOSw6oVh3V~0/s-l500.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/234372490547_2_0_1/225x225.jpg)
 
 

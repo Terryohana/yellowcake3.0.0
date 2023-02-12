@@ -16,7 +16,7 @@
 ---
 $
 
-Make the most of your life Google Pixel 3 - G013A 64GB/128GB Smartphone Unlocked Multi-Band GSM/CDMA - a 5-star Cell Phones & Smartphones device.
+Experience new things Google Pixel 3 - G013A 64GB/128GB Smartphone Unlocked Multi-Band GSM/CDMA - a 2-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/184891803008?hash=item2b0c690580%3Ag%3AqHcAAOSwN1BgyoKi&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Google Pixel 3 - G013A 64GB/128GB Smartphone Unlocked Multi-Band GSM/CDMA. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/qHcAAOSwN1BgyoKi/s-l225.jpg)and the additional images are![Google Pixel 3 - G013A 64GB/128GB Smartphone Unlocked Multi-Band GSM/CDMA](https://i.ebayimg.com/images/g/qHcAAOSwN1BgyoKi/s-l500.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/184891803008_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/184891803008_3_0_1/225x225.jpg)
 
 

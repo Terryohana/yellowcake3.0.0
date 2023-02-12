@@ -16,7 +16,7 @@
         
 ---
 $
-    Widely recognized, this Cell Phones & Smartphones device is available at a discounted price of 591.5913 after a 13% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/285120336478?hash=item42627f125e%3Ag%3A1XIAAOSwwL1jz-8q&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony Xperia 5 IV 128GB XQ-CQ62 5G Factory Unlocked - Very Good. The shipping cost is undefined.Product ImageSony Xperia 5 IV 128GB XQ-CQ62 5G Factory Unlocked - Very GoodAdditional ImagesSony Xperia 5 IV 128GB XQ-CQ62 5G Factory Unlocked - Very Good, check vendor page, ![check vendor page]()
+    Must-have item, this Cell Phones & Smartphones device is available at a discounted price of 584.7914 after a 14% discount and has a rating of 1 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/285120336478?hash=item42627f125e%3Ag%3A1XIAAOSwwL1jz-8q&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony Xperia 5 IV 128GB XQ-CQ62 5G Factory Unlocked - Very Good. The shipping cost is undefined.Product ImageSony Xperia 5 IV 128GB XQ-CQ62 5G Factory Unlocked - Very GoodAdditional ImagesSony Xperia 5 IV 128GB XQ-CQ62 5G Factory Unlocked - Very Good, check vendor page, ![check vendor page]()
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 12526 
+ - Feedback score - 12527 
 
 
       

@@ -16,7 +16,7 @@
 ---
 $
 
-Be yourself HTC One M9 HTC6535LVW Gunmetal Gray 3gb Ram 32gb storage Verizon/Unlocked - CIB - a 5-star Cell Phones & Smartphones device.
+Be inspired HTC One M9 HTC6535LVW Gunmetal Gray 3gb Ram 32gb storage Verizon/Unlocked - CIB - a 1-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/295268246865?hash=item44bf5be551%3Ag%3AtT4AAOSwhz1jRJIo&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the HTC One M9 HTC6535LVW Gunmetal Gray 3gb Ram 32gb storage Verizon/Unlocked - CIB. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/tT4AAOSwhz1jRJIo/s-l225.jpg)and the additional images are![HTC One M9 HTC6535LVW Gunmetal Gray 3gb Ram 32gb storage Verizon/Unlocked - CIB](https://i.ebayimg.com/images/g/tT4AAOSwhz1jRJIo/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/295268246865_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/295268246865_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/295268246865_4_0_1/225x225.jpg)
 
 

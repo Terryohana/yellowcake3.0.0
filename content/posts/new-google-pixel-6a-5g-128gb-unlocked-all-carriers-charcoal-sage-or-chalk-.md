@@ -3,8 +3,9 @@
       title: new google pixel 6a 5g 128gb unlocked all carriers charcoal sage or chalk 
       status: Published
       date: '2023-02-12'
-      featuredImage: https://i.ebayimg.com/thumbs/images/g/0oQAAOSwENtjG7DC/s-l225.jpg
-      categories: 
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/0oQAAOSwENtjG7DC/s-l225.jpg'
+       
+
       excerpt: >-
         [smartphone,device ,hand held device]
       meta:
@@ -12,14 +13,12 @@
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
       
-        
+
 ---
 $
+      Introducing th NEW! Google Pixel 6a 5G - 128GB Unlocked All Carriers (Charcoal, Sage, or Chalk) from a well-known brand.This Cordless hand held device is sure to be a Artistic-touch in your home. [Click Here](https://www.ebay.com/itm/275453864913?hash=item4022546bd1%3Ag%3A0oQAAOSwENtjG7DC&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the NEW! Google Pixel 6a 5G - 128GB Unlocked All Carriers (Charcoal, Sage, or Chalk). Shipping cost is undefined.Here is the posting visibly ![NEW! Google Pixel 6a 5G - 128GB Unlocked All Carriers (Charcoal, Sage, or Chalk)](https://i.ebayimg.com/thumbs/images/g/0oQAAOSwENtjG7DC/s-l225.jpg) to check out more postings here... ![NEW! Google Pixel 6a 5G - 128GB Unlocked All Carriers (Charcoal, Sage, or Chalk)](https://i.ebayimg.com/images/g/0oQAAOSwENtjG7DC/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275453864913_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275453864913_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275453864913_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275453864913_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275453864913_6_0_1/225x225.jpg)'
 
-Be in the know NEW! Google Pixel 6a 5G - 128GB Unlocked All Carriers (Charcoal, Sage, or Chalk) - a 3-star Cell Phones & Smartphones device.
-$[Click Here](https://www.ebay.com/itm/275453864913?hash=item4022546bd1%3Ag%3A0oQAAOSwENtjG7DC&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the NEW! Google Pixel 6a 5G - 128GB Unlocked All Carriers (Charcoal, Sage, or Chalk). Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/0oQAAOSwENtjG7DC/s-l225.jpg)and the additional images are![NEW! Google Pixel 6a 5G - 128GB Unlocked All Carriers (Charcoal, Sage, or Chalk)](https://i.ebayimg.com/images/g/0oQAAOSwENtjG7DC/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/275453864913_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275453864913_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275453864913_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275453864913_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/275453864913_6_0_1/225x225.jpg)
-
-
+      
 
  ## Technical Facts 
 
@@ -59,5 +58,4 @@ $[Click Here](https://www.ebay.com/itm/275453864913?hash=item4022546bd1%3Ag%3A0o
 
 
 
-
-
+      -

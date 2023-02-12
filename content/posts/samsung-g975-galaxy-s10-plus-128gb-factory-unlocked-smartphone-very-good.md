@@ -2,7 +2,7 @@
       template: SinglePost
       title: samsung g975 galaxy s10 plus 128gb factory unlocked smartphone very good
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/JhEAAOSwBGBc-RlX/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Samsung G975 Galaxy S10+ Plus 128GB Factory Unlocked Smartphone - Very Good from a well-known brand.This Light hand held device is sure to be a Center-of-interest in your home. [Click Here](https://www.ebay.com/itm/403272229686?hash=item5de4e5e336%3Ag%3AJhEAAOSwBGBc-RlX&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Samsung G975 Galaxy S10+ Plus 128GB Factory Unlocked Smartphone - Very Good. Shipping cost is undefined.Here is the posting visibly ![Samsung G975 Galaxy S10+ Plus 128GB Factory Unlocked Smartphone - Very Good](https://i.ebayimg.com/thumbs/images/g/JhEAAOSwBGBc-RlX/s-l225.jpg) to check out more postings here... ![Samsung G975 Galaxy S10+ Plus 128GB Factory Unlocked Smartphone - Very Good](https://i.ebayimg.com/images/g/JhEAAOSwBGBc-RlX/s-l960.jpg), ![check vendor page]()'
+      Introducing th Samsung G975 Galaxy S10+ Plus 128GB Factory Unlocked Smartphone - Very Good from a well-known brand.This Miniature smartphone is sure to be a Discussion--starter in your home. [Click Here](https://www.ebay.com/itm/403272229686?hash=item5de4e5e336%3Ag%3AJhEAAOSwBGBc-RlX&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Samsung G975 Galaxy S10+ Plus 128GB Factory Unlocked Smartphone - Very Good. Shipping cost is undefined.Here is the posting visibly ![Samsung G975 Galaxy S10+ Plus 128GB Factory Unlocked Smartphone - Very Good](https://i.ebayimg.com/thumbs/images/g/JhEAAOSwBGBc-RlX/s-l225.jpg) to check out more postings here... ![Samsung G975 Galaxy S10+ Plus 128GB Factory Unlocked Smartphone - Very Good](https://i.ebayimg.com/images/g/JhEAAOSwBGBc-RlX/s-l960.jpg), ![check vendor page]()'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 340199 
+ - Feedback score - 340221 
 
 
       

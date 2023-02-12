@@ -16,7 +16,7 @@
 ---
 $
 
-Stay on top of things Samsung Galaxy Note 9 SM-N960U - 128GB - (Unlocked) - C Stock Heavy Shadow - a 4-star Cell Phones & Smartphones device.
+Live life to the fullest Samsung Galaxy Note 9 SM-N960U - 128GB - (Unlocked) - C Stock Heavy Shadow - a 4-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/194542332425?hash=item2d4ba06a09%3Ag%3AUC0AAOSwPAldwPy%7E&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the Samsung Galaxy Note 9 SM-N960U - 128GB - (Unlocked) - C Stock Heavy Shadow. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/UC0AAOSwPAldwPy~/s-l225.jpg)and the additional images are![Samsung Galaxy Note 9 SM-N960U - 128GB - (Unlocked) - C Stock Heavy Shadow](https://i.ebayimg.com/images/g/UC0AAOSwPAldwPy~/s-l640.jpg)![check vendor page]()
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/194542332425?hash=item2d4ba06a09%3Ag%3AUC
 
       
 
- - Feedback score - 121889 
+ - Feedback score - 121894 
 
 
       

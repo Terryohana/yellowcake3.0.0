@@ -2,7 +2,7 @@
       template: SinglePost
       title: htc one m8 htc6525l silver verizon 4g lte android smartphone
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: https://i.ebayimg.com/thumbs/images/g/VU4AAOSwYqVjD7-v/s-l225.jpg
       categories: 
       excerpt: >-
@@ -16,7 +16,7 @@
 ---
 $
 
-Stay in style with HTC One M8 / HTC6525L - Silver ( Verizon ) 4G LTE Android Smartphone - a 5-star Cell Phones & Smartphones device.
+Be the best you can be HTC One M8 / HTC6525L - Silver ( Verizon ) 4G LTE Android Smartphone - a 2-star Cell Phones & Smartphones device.
 $[Click Here](https://www.ebay.com/itm/325325417564?hash=item4bbee7ec5c%3Ag%3AVU4AAOSwYqVjD7-v&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional image urls for the HTC One M8 / HTC6525L - Silver ( Verizon ) 4G LTE Android Smartphone. Shipping cost is undefined. Here is how the product looks ![check vendor page](https://i.ebayimg.com/thumbs/images/g/VU4AAOSwYqVjD7-v/s-l225.jpg)and the additional images are![HTC One M8 / HTC6525L - Silver ( Verizon ) 4G LTE Android Smartphone](https://i.ebayimg.com/images/g/VU4AAOSwYqVjD7-v/s-l1600.jpg)![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/325325417564_2_0_1/225x225.jpg)
 
 
@@ -43,7 +43,7 @@ $[Click Here](https://www.ebay.com/itm/325325417564?hash=item4bbee7ec5c%3Ag%3AVU
 
       
 
- - Feedback score - 1691 
+ - Feedback score - 1692 
 
 
       

@@ -16,7 +16,7 @@
         
 ---
 $
-    Highly recommended, this Cell Phones & Smartphones device is available at a discounted price of 711.9911 after a 11% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/284869560086?hash=item42538c8716%3Ag%3ArhUAAOSwGBNitgYs&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony Xperia PRO-I 5G 512GB XQ-BE62 Factory Unlocked - Excellent. The shipping cost is undefined.Product ImageSony Xperia PRO-I 5G 512GB XQ-BE62 Factory Unlocked - ExcellentAdditional ImagesSony Xperia PRO-I 5G 512GB XQ-BE62 Factory Unlocked - Excellent, check vendor page, ![check vendor page]()
+    Preferred by professionals, this Cell Phones & Smartphones device is available at a discounted price of 711.9911 after a 11% discount and has a rating of 3 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/284869560086?hash=item42538c8716%3Ag%3ArhUAAOSwGBNitgYs&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony Xperia PRO-I 5G 512GB XQ-BE62 Factory Unlocked - Excellent. The shipping cost is undefined.Product ImageSony Xperia PRO-I 5G 512GB XQ-BE62 Factory Unlocked - ExcellentAdditional ImagesSony Xperia PRO-I 5G 512GB XQ-BE62 Factory Unlocked - Excellent, check vendor page, ![check vendor page]()
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 12526 
+ - Feedback score - 12527 
 
 
       

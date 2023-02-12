@@ -16,7 +16,7 @@
         
 ---
 $
-    Industry standard, this Cell Phones & Smartphones device is available at a discounted price of 120.3914 after a 14% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/195537774775?hash=item2d86f5a8b7%3Ag%3AhWkAAOSwGcxjrg57&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony XPERIA X Dual F5122 (FACTORY UNLOCKED) 64GB 23MP White/Black/Gold. The shipping cost is undefined.Product ImageSony XPERIA X Dual F5122 (FACTORY UNLOCKED) 64GB 23MP White/Black/GoldAdditional ImagesSony XPERIA X Dual F5122 (FACTORY UNLOCKED) 64GB 23MP White/Black/Gold, check vendor page, ![check vendor page]()
+    Outstanding performance, this Cell Phones & Smartphones device is available at a discounted price of 124.59110000000001 after a 11% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/195537774775?hash=item2d86f5a8b7%3Ag%3AhWkAAOSwGcxjrg57&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Sony XPERIA X Dual F5122 (FACTORY UNLOCKED) 64GB 23MP White/Black/Gold. The shipping cost is undefined.Product ImageSony XPERIA X Dual F5122 (FACTORY UNLOCKED) 64GB 23MP White/Black/GoldAdditional ImagesSony XPERIA X Dual F5122 (FACTORY UNLOCKED) 64GB 23MP White/Black/Gold, check vendor page, ![check vendor page]()
     
     
 
