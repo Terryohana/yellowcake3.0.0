@@ -2,7 +2,7 @@
 template: ComponentsPage
 slug: components
 title: Categories Page
-featuredImage: https://ucarecdn.com/df0dc650-6938-412f-aefb-2019d2349e13/
+featuredImage: https://cdn.vox-cdn.com/thumbor/bN95S_gJm1-aHWetMEHWJbzcraA=/2x0:1022x680/1200x800/filters:focal(2x0:1022x680)/cdn.vox-cdn.com/assets/2137609/transparent.jpg
 subtitle: Find the phone you want here ....
 section1: >-
   ## This is where you can search for you phone by choosing your category
