@@ -2,8 +2,8 @@
       template: SinglePost
       title: samsung galaxy s20 fe g781u unlocked verizon t mobile mint boost straight talk
       status: Published
-      date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/zhgAAOSw3sVjyYem/s-l225.jpg'
+      date: '2023-02-12'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/9qoAAOSwWlFjyYel/s-l225.jpg'
        
 
       excerpt: >-
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th Samsung Galaxy S20 FE G781U Unlocked Verizon T-Mobile Mint Boost Straight Talk from a well-known brand.This Compact smartphone is sure to be a Decorative-statement in your home. [Click Here](https://www.ebay.com/itm/175579542035?hash=item28e15b3213%3Ag%3AzhgAAOSw3sVjyYem&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Samsung Galaxy S20 FE G781U Unlocked Verizon T-Mobile Mint Boost Straight Talk. Shipping cost is undefined.Here is the posting visibly ![Samsung Galaxy S20 FE G781U Unlocked Verizon T-Mobile Mint Boost Straight Talk](https://i.ebayimg.com/thumbs/images/g/zhgAAOSw3sVjyYem/s-l225.jpg) to check out more postings here... ![Samsung Galaxy S20 FE G781U Unlocked Verizon T-Mobile Mint Boost Straight Talk](https://i.ebayimg.com/images/g/zhgAAOSw3sVjyYem/s-l1200.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175579542035_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579542035_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579542035_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579542035_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579542035_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579542035_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579542035_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579542035_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579542035_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579542035_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579542035_12_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579542035_13_0_1/225x225.jpg)'
+      Introducing th Samsung Galaxy S20 FE G781U Unlocked Verizon T-Mobile Mint Boost Straight Talk from a well-known brand.This Compact size device  is sure to be a Room-accent in your home. [Click Here](https://www.ebay.com/itm/175579541497?hash=item28e15b2ff9%3Ag%3A9qoAAOSwWlFjyYel&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Samsung Galaxy S20 FE G781U Unlocked Verizon T-Mobile Mint Boost Straight Talk. Shipping cost is undefined.Here is the posting visibly ![Samsung Galaxy S20 FE G781U Unlocked Verizon T-Mobile Mint Boost Straight Talk](https://i.ebayimg.com/thumbs/images/g/9qoAAOSwWlFjyYel/s-l225.jpg) to check out more postings here... ![Samsung Galaxy S20 FE G781U Unlocked Verizon T-Mobile Mint Boost Straight Talk](https://i.ebayimg.com/images/g/9qoAAOSwWlFjyYel/s-l1600.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/175579541497_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579541497_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579541497_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579541497_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579541497_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579541497_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579541497_8_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579541497_9_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579541497_10_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579541497_11_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579541497_12_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/175579541497_13_0_1/225x225.jpg)'
 
       
 
@@ -27,12 +27,12 @@ $
      
       
 
- - Condition- Excellent - Refurbished 
+ - Condition- Open box 
 
 
       
 
- - Listed Price- 199.99 
+ - Listed Price- 149.99 
 
 
       
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 2942 
+ - Feedback score - 2948 
 
 
       

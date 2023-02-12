@@ -2,8 +2,8 @@
       template: SinglePost
       title: choose flip slider smart bar tablet cdma or gsm phone for parts only
       status: Published
-      date: '2023-02-11'
-      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/9TEAAOSwSCxgdgs7/s-l225.jpg'
+      date: '2023-02-12'
+      featuredImage: 'https://i.ebayimg.com/thumbs/images/g/f6kAAOSwSIRgQVav/s-l225.jpg'
       categories: 
 
       excerpt: >-
@@ -16,7 +16,7 @@
         
 ---
 $
-    Innovative design, this Cell Phones & Smartphones device is available at a discounted price of 2.2176 after a 12% discount and has a rating of 2 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/265076609178?hash=item3db7cc109a%3Ag%3A9TEAAOSwSCxgdgs7&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Choose Flip / Slider / Smart / Bar / Tablet / CDMA or GSM Phone.  For Parts Only. The shipping cost is undefined.Product ImageChoose Flip / Slider / Smart / Bar / Tablet / CDMA or GSM Phone.  For Parts OnlyAdditional ImagesChoose Flip / Slider / Smart / Bar / Tablet / CDMA or GSM Phone.  For Parts Only, check vendor page, ![check vendor page]()
+    Top choice, this Cell Phones & Smartphones device is available at a discounted price of 2.1672 after a 14% discount and has a rating of 5 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/265076609178?hash=item3db7cc109a%3Ag%3Af6kAAOSwSIRgQVav&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Choose Flip / Slider / Smart / Bar / Tablet / CDMA or GSM Phone.  For Parts Only. The shipping cost is undefined.Product ImageChoose Flip / Slider / Smart / Bar / Tablet / CDMA or GSM Phone.  For Parts OnlyAdditional ImagesChoose Flip / Slider / Smart / Bar / Tablet / CDMA or GSM Phone.  For Parts Only, check vendor page, ![check vendor page]()
     
     
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 5351 
+ - Feedback score - 5353 
 
 
       

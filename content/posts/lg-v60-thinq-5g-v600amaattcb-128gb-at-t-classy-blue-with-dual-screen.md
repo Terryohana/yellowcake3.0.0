@@ -2,7 +2,7 @@
       template: SinglePost
       title: lg v60 thinq 5g v600amaattcb 128gb at t classy blue with dual screen
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/th4AAOSwgPJitI3h/s-l225.jpg'
        
 
@@ -16,7 +16,7 @@
 
 ---
 $
-      Introducing th LG V60 ThinQ 5G V600AMAATTCB 128GB AT&T Classy Blue WITH DUAL SCREEN from a well-known brand.This Compact size smartphone is sure to be a Center of attention  in your home. [Click Here](https://www.ebay.com/itm/354125411432?hash=item527384f468%3Ag%3Ath4AAOSwgPJitI3h&amdata=enc%3AAQAHAAAA4Lf5oFsOZG5pyBRgWBJA1obUkM5FAajpwoEudKbY27HUWi5ux4OiT3eT4kcMmu%2F2xX2IRFQdPZtK4fGCCsqSYJpuSXVoSvJfkmgvIjC7A7NiPw419qU3yVP0xlXKX7GQpKNfjeAb9qR5n5L3U3PHHD66wjYqqPCjaAVi29Evqgpd81jdOKFI68aK9TV9x8ewmCpWA1MPqhRuPPa7xLDvfBvhX72vfYLGUvQ3TxI6tQq62L2Jy0MTI%2FfcCkohp8MYOdZIAODmv010QrqM%2BKT%2B9ufFkP3aIgqoc4aI8pf1CRLp&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the LG V60 ThinQ 5G V600AMAATTCB 128GB AT&T Classy Blue WITH DUAL SCREEN. Shipping cost is undefined.Here is the posting visibly ![LG V60 ThinQ 5G V600AMAATTCB 128GB AT&T Classy Blue WITH DUAL SCREEN](https://i.ebayimg.com/thumbs/images/g/th4AAOSwgPJitI3h/s-l225.jpg) to check out more postings here... ![LG V60 ThinQ 5G V600AMAATTCB 128GB AT&T Classy Blue WITH DUAL SCREEN](https://i.ebayimg.com/images/g/th4AAOSwgPJitI3h/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/354125411432_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/354125411432_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/354125411432_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/354125411432_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/354125411432_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/354125411432_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/354125411432_8_0_1/225x225.jpg)'
+      Introducing th LG V60 ThinQ 5G V600AMAATTCB 128GB AT&T Classy Blue WITH DUAL SCREEN from a well-known brand.This Compact hand held device is sure to be a Point of attraction  in your home. [Click Here](https://www.ebay.com/itm/354125411432?hash=item527384f468%3Ag%3Ath4AAOSwgPJitI3h&amdata=enc%3AAQAHAAAA4Lf5oFsOZG5pyBRgWBJA1obUkM5FAajpwoEudKbY27HUWi5ux4OiT3eT4kcMmu%2F2xX2IRFQdPZtK4fGCCsqSYJpuSXVoSvJfkmgvIjC7A7NiPw419qU3yVP0xlXKX7GQpNXrfiShE5%2FHfvDhKtTG0g%2B0O97%2BTgDU%2BOy%2BwaJ1LboWEsd9TAhrnjxWfmDXhv5hdIke40P39zUoRzpNQskoCL01RflrNlPzIpwpXqNT1%2BEU5hkO8tFszWgPKDATb4dI5Zyeo9%2BFUUml8gLgBRrsXqwjV8T0hN45CBYWYcRROuRZ&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the LG V60 ThinQ 5G V600AMAATTCB 128GB AT&T Classy Blue WITH DUAL SCREEN. Shipping cost is undefined.Here is the posting visibly ![LG V60 ThinQ 5G V600AMAATTCB 128GB AT&T Classy Blue WITH DUAL SCREEN](https://i.ebayimg.com/thumbs/images/g/th4AAOSwgPJitI3h/s-l225.jpg) to check out more postings here... ![LG V60 ThinQ 5G V600AMAATTCB 128GB AT&T Classy Blue WITH DUAL SCREEN](https://i.ebayimg.com/images/g/th4AAOSwgPJitI3h/s-l960.jpg), ![check vendor page](https://origin-galleryplus.ebayimg.com/ws/web/354125411432_2_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/354125411432_3_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/354125411432_4_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/354125411432_5_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/354125411432_6_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/354125411432_7_0_1/225x225.jpg,https://origin-galleryplus.ebayimg.com/ws/web/354125411432_8_0_1/225x225.jpg)'
 
       
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 17396 
+ - Feedback score - 17397 
 
 
       

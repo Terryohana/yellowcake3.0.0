@@ -2,9 +2,9 @@
       template: SinglePost
       title: samsung galaxy note 9 sm n960u 128gb verizon at t tmobile unlocked c stock
       status: Published
-      date: '2023-02-11'
+      date: '2023-02-12'
       featuredImage: 'https://i.ebayimg.com/thumbs/images/g/Ta4AAOSw1slgzBLt/s-l225.jpg'
-      categories: 
+       
 
       excerpt: >-
         [smartphone,device ,hand held device]
@@ -12,13 +12,13 @@
       canonicalLink: ''
       description: [handheld,industrially made,well crafted,Portable,Mobile,Compact,Convenient,Lightweight,Maneuverable,Man-portable,Miniature,Carriable,Hand-held,Light,Holdable,Transportable,Mobile device,Pocket-sized,On-the-go,Wireless,Cordless,Compact size,Convenient size, smartphone,device ,hand held device]
       noindex: false
+      
 
-        
 ---
 $
-    User-tested, this Cell Phones & Smartphones device is available at a discounted price of 94.5914 after a 14% discount and has a rating of 4 as of the time this blog was written.Learn More about the shipping costs and additional by [Clicking Here](https://www.ebay.com/itm/194206823980?hash=item2d37a0f62c%3Ag%3ATa4AAOSw1slgzBLt&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049)image urls for the Samsung Galaxy Note 9 SM-N960U 128GB Verizon AT&T TMobile - (Unlocked) - C Stock. The shipping cost is undefined.Product ImageSamsung Galaxy Note 9 SM-N960U 128GB Verizon AT&T TMobile - (Unlocked) - C StockAdditional ImagesSamsung Galaxy Note 9 SM-N960U 128GB Verizon AT&T TMobile - (Unlocked) - C Stock, check vendor page, ![check vendor page]()
-    
-    
+      Introducing th Samsung Galaxy Note 9 SM-N960U 128GB Verizon AT&T TMobile - (Unlocked) - C Stock from a well-known brand.This Compact size smartphone is sure to be a Attention-grabber in your home. [Click Here](https://www.ebay.com/itm/194206823980?hash=item2d37a0f62c%3Ag%3ATa4AAOSw1slgzBLt&mkevt=1&mkcid=1&mkrid=711-53200-19255-0&campid=%253CePNCampaignId%253E&customid=%253CreferenceId%253E&toolid=10049) to read more to learn about the shipping costs and additional details for the Samsung Galaxy Note 9 SM-N960U 128GB Verizon AT&T TMobile - (Unlocked) - C Stock. Shipping cost is undefined.Here is the posting visibly ![Samsung Galaxy Note 9 SM-N960U 128GB Verizon AT&T TMobile - (Unlocked) - C Stock](https://i.ebayimg.com/thumbs/images/g/Ta4AAOSw1slgzBLt/s-l225.jpg) to check out more postings here... ![Samsung Galaxy Note 9 SM-N960U 128GB Verizon AT&T TMobile - (Unlocked) - C Stock](https://i.ebayimg.com/images/g/Ta4AAOSw1slgzBLt/s-l1200.jpg), ![check vendor page]()'
+
+      
 
  ## Technical Facts 
 
@@ -42,7 +42,7 @@ $
 
       
 
- - Feedback score - 121855 
+ - Feedback score - 121889 
 
 
       
@@ -57,8 +57,5 @@ $
 
 
 
-    
-    
-    
-    
-    
+
+      -
